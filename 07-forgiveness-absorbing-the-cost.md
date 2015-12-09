@@ -15,9 +15,9 @@ The Lord's Prayer commands us to pray, "Forgive our trespasses as we forgive our
 
 The Bible is the story of a God who forgives, calling the forgiven to be forgiving. Yet so little of the forgiveness we have received translates into forgiveness for others. We need help!
 
-**QUESTION:** *What is forgiveness?*
+**DISCUSSION QUESTION:** *What is forgiveness?*
 
-**QUESTION:** *What can cause forgiveness to be so difficult?*
+**DISCUSSION QUESTION:** *What can cause forgiveness to be so difficult?*
 
 ## What Does It Mean to Forgive?
 
