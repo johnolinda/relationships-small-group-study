@@ -60,7 +60,7 @@ As we live with one another in the middle, we need more than good feelings and a
 Your goal here is to help others develop a "Christ is with me" mentality. A good passage to refer to is Psalm 46:1-2:
 
 > God is our refuge and strength,  
-a very present[b] help in trouble.  
+a very present help in trouble.  
 Therefore we will not fear though the earth gives way,  
 though the mountains be moved into the heart of the sea,  
 
