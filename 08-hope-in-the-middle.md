@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: page
 title: Hope in the Middle
 ---
 
