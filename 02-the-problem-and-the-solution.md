@@ -3,39 +3,27 @@ layout: page
 title: The Problem and the Solution
 ---
 
-## Review (5 minutes)
+**DISCUSSION QUESTION:** *How important are relationships to God?*
 
-*How important are relationships to God?*
+**DISCUSSION QUESTION:** *From where does true community grow?*
 
-*From where does true community grow?*
+**DISCUSSION QUESTION:** *Did you work on any relationships this past week?*
 
-*Did you work on any relationships this past week?*
+Our problems in relationships have everything to do with sin inside us, and our potential to overcome the problems has everything to do with Christ. I need to look inward to my heart to identify my part of a conflict. I need to seek restoration in a godly way that includes searching my own heart and confessing my sin to the other person. So where do relationship problems start, and can they be fixed?
 
-## Central Point & Applications
+---
 
-**Central Point:** Our problems in relationships have everything to do with sin inside us, and our potential to overcome the problems has everything to do with Christ.
+**Editor's Note:** *[The handout can be found here](). I will include supplemental material, most of which is optional. However, this particular handout is one that you definitely should do with your small group. Please see me if you would like me to print copies for you.*
 
-**Personal Application:** I need to look inward to my heart to identify my part of a conflict.
-
-**Relational Application:** I need to seek restoration in a godly way that includes searching my own heart and confessing my sin to the other person.
-
-## The Big Question
-
-*Where do the problems in relationships lie, and can they be repaired?*
-
-## Opening Activity (5 minutes)
+---
 
 Let's answer the questions on the front page of our handouts. This should take only a few minutes, and if you are stuck answering one just come back to it when you've finished the rest.
 
-Even in our best relationships we can probably answer yes to all of these questions. Even in the best relationship there are struggles and arguments, temptations and conflicts. If we can answer yes to most of these questions for our *best* relationship, how much more work must be required in relationships that are more difficult! Our experiences with relationships help us understand why the Bible includes so many commands and exhortations to be patient, kind, forgiving, compassionate, gentle, and humble. The Bible assumes that relationships this side of eternity will be messy and require lots of work.
+Even in our best relationships we can probably answer yes to all of these questions. Even in the best relationship there are struggles and arguments, temptations and conflicts. If we can answer yes to most of these questions for our *best* relationship, how much more work must be required in relationships that are more difficult! Our experiences with relationships help us understand why the Bible includes so many commands and exhortations to be patient, kind, forgiving, compassionate, gentle, and humble. The Bible assumes that relationships this side of eternity will be messy and difficult.
 
-## Inside Out, Upside Down
+James asks what causes problems among us and answers by reminding us that our real problem is not found outside of us (which is the answer most of us are looking for) but inside us. In James 4:1 we see that the source is inside us. We allow our selfish desires to rule over us instead of God, and this leads to problems, conflicts, and disappointments. This role reversal - making ourselves first and God second - is what the Bible calls sin.
 
-James asks what causes problems among us and answers by reminding us that our real problem is not located outside ourselves (which is the answer most of us are looking for) but rather inside us. In James 4:1 we see that the source is inside us. We allow our selfish desires to rule over us instead of God, and this leads to problems, conflicts, and disappointments. This role reversal - making ourselves ultimate and God secondary - is what the Bible calls sin.
-
-### Exploring the Problem (10 minutes)
-
-Finish each of the lines in your notes with a word or phrase:
+Finish each of the lines in your handout with a word or phrase:
 
 * *Sin inside of me is like a...*
 * *Sin inside of me makes me feel like a...*
@@ -44,17 +32,19 @@ Finish each of the lines in your notes with a word or phrase:
 
 Let's read Romans 7:21-25 and look more deeply into the issue.
 
-*Identify some words or phrases that Paul uses to describe his sinful condition.*
+> So I find it to be a law that when I want to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my members another law waging war against the law of my mind and making me captive to the law of sin that dwells in my members. Wretched man that I am! Who will deliver me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my mind, but with my flesh I serve the law of sin.
 
-* Law: it is something we will never escape in this life.
-* War: it's a continual internal battle between our flesh and righteousness.
-* Prison: we want to do right, but our sin often pulls against us and takes away our freedom.
-* Rescue: our sin requires outside help.
-* Death: sin brings death and separation both physically and relationally.
+**DISCUSSION QUESTION:** *Identify some words or phrases that Paul uses to describe his sinful condition. (Law: it is something we will never escape in this life; War: it's a continual internal battle between our flesh and righteousness; Prison: we want to do right, but our sin often pulls against us and takes away our freedom; Rescue: our sin requires outside help; Death: sin brings death and separation both physically and relationally.*
 
 We can conclude from this passage that our biggest problem is inside us, and we can't repair it alone.
 
-## The Basic Effects of Sin (25 Minutes)
+## The Basic Effects of Sin
+
+---
+
+**Editor's Note:** *This story is fictional and was created for high school or young adult students, so if you don't feel like it would be appropriate for the students you are working with, feel free to make up a story that will make more sense to them. All that matters are the basic elements of demonstrating the six effects of sin in our relationships. You will also need to edit the conclusion of the story at the end.*
+
+---
 
 Kristin and Shane had been friends through grade school, and in high school it began to turn into something more. Although they ended up going to different colleges, they remained close and spent at least three weekends a month together.
 
@@ -152,7 +142,7 @@ Our problems have everything to do with sin, and our potential has everything to
 
 Shane and Kristin did find grace for their struggle. They sought help. Listening to the other talk about his or her hurts was very difficult at first. But as they faced their struggle, they also saw something else. They began to see their God, not off in the distance somewhere but right there with them in the difficulty. As they began to trust him, they began to find the courage to trust each other again and continue to move toward each other.
 
-## Closing Activity: Exploring the Solution (5 minutes)
+## Exploring the Solution
 
 Finish each of these lines with a word or phrase:
 
@@ -161,19 +151,21 @@ Finish each of these lines with a word or phrase:
 * *When I think of Jesus, I feel...*
 * *When I think of Jesus, I need...*
 
-### Central Point
+**DISCUSSION QUESTION:** *How did you finish each of those statements?*
+
+## Central Point
 
 1. On this side of eternity, relationships will be messy and require a lot of work.
 2. Our biggest problem in relationships is inside us.
 3. We need God's grace in our relationships.
 
-### Personal Application
+## Personal Application
 
 1. I need to expect difficulties in my relationships.
 2. I need to examine my own heart and confess my sins that either lead to the conflict or resulted from the conflict.
 3. I need to depend on God's grace to persevere and not my own wisdom or strength.
 
-### Relational Application
+## Relational Application
 
 1. I shouldn't be angry when difficulties come; they are a part of life and God's tool for spiritual growth.
 2. I need to seek restoration in a godly way that includes searching my own heart and confessing my sin to the other person.
