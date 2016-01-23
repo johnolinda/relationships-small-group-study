@@ -1,9 +1,9 @@
 ---
 layout: page
-title: Relationships and the Nature of God
+title: The Nature of God
 ---
 
-God is a community and created us to live in community so that we may be a reflection of him. I need to be properly involved in relationships, and I can only have satisfying relationships with others if I am in a right relationship with God. Therefore, Do I see and treat relationships as God intends for me to?
+God is a community and created us to live in community so that we may be a reflection of him. I need to be properly involved in relationships, and I can only have satisfying relationships with others if I am in a right relationship with God. Therefore, do I see and treat relationships as God intends for me to?
 
 ## Isolation vs. Immersion
 

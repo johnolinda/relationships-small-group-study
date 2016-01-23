@@ -1,4 +1,7 @@
-Lesson 02: Relationships: The Problem and the Solution
+---
+layout: page
+title: The Problem and the Solution
+---
 
 ## Review (5 minutes)
 
@@ -49,7 +52,7 @@ Let's read Romans 7:21-25 and look more deeply into the issue.
 * Rescue: our sin requires outside help.
 * Death: sin brings death and separation both physically and relationally.
 
-We can conclude from this passage that our biggest problem is inside us, and we can't repair it alone. 
+We can conclude from this passage that our biggest problem is inside us, and we can't repair it alone.
 
 ## The Basic Effects of Sin (25 Minutes)
 

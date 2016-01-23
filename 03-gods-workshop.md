@@ -1,6 +1,7 @@
-Lesson 03: Relationships: God's Workshop
-
-# Relationships: God's Workshop
+---
+layout: page
+title: God's Workshop
+---
 
 ## Review (5 minutes)
 

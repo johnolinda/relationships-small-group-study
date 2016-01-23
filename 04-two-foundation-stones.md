@@ -1,4 +1,7 @@
-Lesson 04: Relationships: Two Foundation Stones
+---
+layout: page
+title: Two Foundation Stones
+---
 
 ## Central Point and Application
 

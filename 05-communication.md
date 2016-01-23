@@ -1,4 +1,7 @@
-Lesson 05: Relationships and Communication
+---
+layout: page
+title: Communication
+---
 
 ## Review
 

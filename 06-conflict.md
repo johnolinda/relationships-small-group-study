@@ -1,4 +1,7 @@
-Lesson 06: Conflict
+---
+layout: page
+title: Conflict
+---
 
 ## Opening Activity
 
@@ -162,7 +165,7 @@ No one ever said that conflict would be fun, but the Christian life is not alway
 C.S. Lewis wrote:
 
 > ... we must not be surprised if we are in for a rough time. When a man turns to Christ and seems to be getting on pretty well (in the sense that some of his habits are not corrected), he often feels that it would now be natural if things went fairly smoothly.When troubles come along—illnesses, money troubles, new kinds of temptation—he is disappointed. These things, he feels, might have been necessary to rouse him and make him repent in his bad old days; but why now? Because God is forcing him on, or up, to a higher level: putting him into situations where he will have to be very much braver, or more patient, or more loving, than he ever dreamed of being before. It seems to us all unnecessary: but that is because we have not yet had the slightest notion of the tremendous thing He means to make of us.
-> 
+>
 > I find I must borrow yet another parable from George MacDonald. Imagine yourself as a living house. God comes in to rebuild that house. At first, perhaps, you can understand what He is doing. He is getting the drains right and stopping the leaks in the roof and so on: you knew that those jobs needed doing and so you are not surprised. But presently He starts knocking the house about in a way that hurts abominably and does not seem to make sense. What on earth is He up to? The explanation is that He is building quite a different house from the one you thought of—throwing out a new wing here, putting on an extra floor there, running up towers, making courtyards. You thought you were going to be made into a decent little cottage: but He is building a palace. He intends to come and live in it Himself.
 
 ## Central Point
