@@ -4,4 +4,6 @@ These are the course materials for the *Relationships: A Mess Worth Making* smal
 
 You should explain to your group that you're not specifically dealing with romantic relationships, but relationships in general. Although dating or marriage relationships are important, we need to work on all of our relationships.
 
+If you want a pretty, printable version of the lessons, just change the part of the URL that says `github.com` to `gitprint.com` and leave the rest the same. Then hit enter and it'll take you to a PDF version that you can easily print out if you prefer. Otherwise, the files will show up just fine on your phone, tablet, or laptop when you access them via the browser.
+
 Feel free to [contact me](mailto:johnolinda@seoulchristian.org) with any questions, I'm happy to help!
