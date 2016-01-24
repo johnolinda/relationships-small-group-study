@@ -1,7 +1,4 @@
----
-layout: page
-title: Forgiveness: Absorbing the Cost
----
+# Forgiveness: Absorbing the Cost
 
 **DISCUSSION QUESTION:** *What is the most valuable thing you have learned so far?*
 

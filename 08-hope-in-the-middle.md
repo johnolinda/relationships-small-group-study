@@ -1,7 +1,4 @@
----
-layout: page
-title: Hope in the Middle
----
+# Hope in the Middle
 
 My relationships will never be perfect. But because of Christ I can make it through the problems and I can be used by him as an instrument of grace. That means that I need to remain in Christ so that I can bear fruit in my relationships and I need to encourage others to remain in Christ. So why can relationships be so difficult, and how can you get through it?
 

@@ -1,8 +1,3 @@
----
-layout: page
-title: Transforming Average Relationships into Great Relationships
----
-
 # Transforming Average Relationships into Great Relationships
 
 **DISCUSSION QUESTION:** *Think about this past week. Did God use someone in your life to help you grow spiritually? Were you able to help someone else grow spiritually?*

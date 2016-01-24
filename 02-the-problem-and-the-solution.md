@@ -1,7 +1,4 @@
----
-layout: page
-title: The Problem and the Solution
----
+# The Problem and the Solution
 
 **DISCUSSION QUESTION:** *How important are relationships to God?*
 
