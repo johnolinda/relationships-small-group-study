@@ -12,7 +12,7 @@ We can live with a tension between our desire for meaningful relationships and s
 
 **DISCUSSION QUESTION:** *Which end of the spectrum do you tend to move toward and why?*
 
-Our relationships tend to fit one of these three profiles:
+Without the help of Christ, our relationships tend to fit one of these three profiles:
 
 ### The Frustrated Relationship
 
