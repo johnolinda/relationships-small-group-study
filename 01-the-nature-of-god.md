@@ -10,7 +10,7 @@ Because relationships are so hard, it can lead to families sharing homes without
 
 We can live with a tension between our desire for meaningful relationships and self-preservation. We can avoid many of the mistakes common to relationships without avoiding relationships. Every relational decision we make moves us toward isolation or immersion. Sometimes we will find ourselves at an extreme of this continuum. The temptation is either to make more or less of relationships than God intended.
 
-**DISCUSSION QUESTION:** *Which end of the continuum you tend to move toward and why?*
+**DISCUSSION QUESTION:** *Which end of the spectrum do you tend to move toward and why?*
 
 Our relationships tend to fit one of these three profiles:
 
