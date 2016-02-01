@@ -4,7 +4,7 @@ God is a community and created us to live in community so that we may be a refle
 
 ## Isolation vs. Immersion
 
-Relationships will be hard. Having to deal with flawed people in a broken world can make one wonder if they're even worth it. Have you felt this way? Have you avoided another student so you don't have to deal with a problem? Have you avoided saying how you feel because it doesn't seem like it would be worth it to tell them?
+Relationships will be hard. Having to deal with flawed people in a broken world can make you wonder if they're even worth it. Have you felt this way? Have you avoided another person so you don't have to deal with a problem? Have you avoided saying how you feel because it doesn't seem like it would be worth it to tell them?
 
 Because relationships are so hard, it can lead to families sharing homes without talking. Going to church without sharing in the lives of others. Neighbors living next to each other for years without knowing anything about each other. Is this a valid way to live? Is it OK to keep to ourselves to avoid hurt?
 
