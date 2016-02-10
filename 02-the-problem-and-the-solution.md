@@ -22,8 +22,8 @@ James asks what causes problems among us and answers by reminding us that our re
 
 Finish each of the lines in your handout with a word or phrase:
 
-* *Sin inside of me is like a...*
-* *Sin inside of me makes me feel like a...*
+* *Sin inside of me is like...*
+* *Sin inside of me makes me feel like...*
 * *When I think of my sin, I feel...*
 * *When I think of my sin, I need...*
 
@@ -141,8 +141,8 @@ Shane and Kristin did find grace for their struggle. They sought help. Listening
 
 Finish each of these lines with a word or phrase:
 
-* *Christ inside of me is like a...*
-* *Christ inside of me makes me feel like a...*
+* *Christ inside of me is like...*
+* *Christ inside of me makes me feel like...*
 * *When I think of Jesus, I feel...*
 * *When I think of Jesus, I need...*
 
