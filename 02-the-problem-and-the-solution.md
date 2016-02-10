@@ -109,7 +109,7 @@ We said earlier that relationships can be a means of diagnosing our own weakness
 
 Whenever the things we want become more important than God, even when we make relationships more important than God, our relationships suffer. The circle of human relationships was meant only to exist within the larger circle of community with God.
 
-## What About the Bad Things People Do to Me? (5 minutes)
+## What About the Bad Things People Do to Me?
 
 What we've talked about so far may give the impression that our relationships are only harmed by *our* sin. Yet the Bible is full of exhortations to patience, forbearance, compassion, forgiveness, and love; to revoke revenge and anger. This is because God knows we will be sinned against. Like Shane, we are sometimes the victimizers; like Kristin, we are sometimes the victim; sometimes we are both.
 
@@ -124,9 +124,7 @@ The Bible reminds us that even when we are sinned against, ultimately our bigges
 
 Perhaps all this feels overwhelming. Is there any hope for restoration or godly relationships?
 
-*What has God given us to help us navigate relationships in a fallen world?*
-
-His Word, which provides wise principles and promises; his Spirit, who convicts us when we are wrong, empowers us to seek forgiveness, and enables us to show compassion and self-control; his body of believers who can correct and encourage us; baptism, which identifies us a child of God and a member of his body; the Lord's Supper, which reminds us to maintain our unity with God and with other members of his family.
+What has God given us to help us navigate relationships in a fallen world? His Word, which provides wise principles and promises; his Spirit, who convicts us when we are wrong, empowers us to seek forgiveness, and enables us to show compassion and self-control; his body of believers who can correct and encourage us; baptism, which identifies us a child of God and a member of his body; the Lord's Supper, which reminds us to maintain our unity with God and with other members of his family.
 
 ### Two Mistakes
 
