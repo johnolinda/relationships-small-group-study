@@ -31,7 +31,7 @@ Let's read Romans 7:21-25 and look more deeply into the issue.
 
 > So I find it to be a law that when I want to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my members another law waging war against the law of my mind and making me captive to the law of sin that dwells in my members. Wretched man that I am! Who will deliver me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my mind, but with my flesh I serve the law of sin.
 
-**DISCUSSION QUESTION:** *Identify some words or phrases that Paul uses to describe his sinful condition. (Law: it is something we will never escape in this life; War: it's a continual internal battle between our flesh and righteousness; Prison: we want to do right, but our sin often pulls against us and takes away our freedom; Rescue: our sin requires outside help; Death: sin brings death and separation both physically and relationally.)*
+**DISCUSSION QUESTION:** *What are some words or phrases that Paul uses to describe his sinful condition? (Law: it is something we will never escape in this life; War: it's a continual internal battle between our flesh and righteousness; Prison: we want to do right, but our sin often pulls against us and takes away our freedom; Rescue: our sin requires outside help; Death: sin brings death and separation both physically and relationally.)*
 
 We can conclude from this passage that our biggest problem is inside us, and we can't repair it alone.
 
@@ -61,49 +61,37 @@ Sin erodes relationships by effecting us in six basic ways. Let's identify these
 
 Since relationships are about being others-centered, the self-centeredness of sin will eventually subvert God's design for our relationships. When we reject God, we create a void that cannot remain empty and will eventually be filled with self.
 
-*Can we identify self-centeredness in Kristin and Shane's relationship?*
-
-When things got tough, they both reverted to thinking about what was best for them instead of focusing on what God was doing through them and in them. Kristin expected Shane to see things her way, and Shane was frustrated that his expectations for their lifestyle would now go unmet.
+**DISCUSSION QUESTION:** *Can we identify self-centeredness in Kristin and Shane's relationship? (When things got tough, they both reverted to thinking about what was best for them instead of focusing on what God was doing through them and in them; Kristin expected Shane to see things her way, and Shane was frustrated that his expectations for their lifestyle would now go unmet)*
 
 ### Self-rule
 
 When God's wise and loving rule over us is replaced with self-rule, other people become our subjects. They are expected to do our bidding and bow to our control. Because relationships are supposed to be conducted between two people who are equally submitted to God, the quest for self-rule will always cause damage in relationships.
 
-*Can you identify self-rule in Shane and Kristin's difficulty?*
-
-Shane tries to control Kristin with demands and criticism, while Kristin uses isolation to attempt to manipulate Shane.
+**DISCUSSION QUESTION:** *Can you identify self-rule in Shane and Kristin's difficulty? (Shane tries to control Kristin with demands and criticism, while Kristin uses isolation to attempt to manipulate Shane)*
 
 ### Self-sufficiency
 
 When we reject God, we believe the intoxicating but poisonous delusion that we are not dependent. If we don't see that we are dependent upon God, it is unlikely that we will be humbly dependent on others. One of God's principle means of providing for us is through our human relationships.
 
-*How have Shane and Kristin moved toward self-sufficiency?*
-
-They each seek solutions to the problem on their own, instead of relying on each other.
+**DISCUSSION QUESTION:** *How have Shane and Kristin moved toward self-sufficiency? (They each seek solutions to the problem on their own, instead of relying on each other)*
 
 ### Self-righteousness
 
 When the holiness of God is not our personal standard of what is true, good, and right, we will always set ourselves up as that standard, leading us to develop an inflated view of ourselves and an overly critical view of others. Godly relationships flourish best between two humble people who acknowledge their weaknesses and sins, as well as their need for grace.
 
-*Can you identify self-righteousness in Kristin and Shane?*
-
-Both seem to blame the other instead of acknowledging the mistakes or decisions that they have made and seeking help from Christ. They have focused on - or created - mistakes by the other in order to preserve a positive self-image.
+**DISCUSSION QUESTION:** *Can you identify self-righteousness in Kristin and Shane? (Both seem to blame the other instead of acknowledging the mistakes or decisions that they have made and seeking help from Christ; they have focused on - or created - mistakes by the other in order to preserve a positive self-image)*
 
 ### Self-satisfaction
 
 When we convince ourselves that satisfaction can be found apart from God, we can move in two different directions. We can try to find satisfaction in material things, which will lead to a disinterest in relationships or using them as a means to get what we want; or we can try to find satisfaction in people, using relationships for our own happiness.
 
-*How have Kristin and Shane turned to self-satisfaction?*
-
-Kristin has replaced Shane with her girlfriends to create what she thinks is a more satisfying relationship, and Shane has sought satisfaction of his desires from his work. Neither is investing in the community that they previously enjoyed so much because it seems more difficult than their self-created solutions.
+**DISCUSSION QUESTION:** *How have Kristin and Shane turned to self-satisfaction? (Kristin has replaced Shane with her girlfriends to create what she thinks is a more satisfying relationship, and Shane has sought satisfaction of his desires from his work; neither is investing in the community that they previously enjoyed so much because it seems more difficult than their self-created solutions)*
 
 ### Self-taught
 
 When we are our own source of truth and wisdom, we forsake the humble, teachable spirit that is vital to a good relationship. We always take the role of mentor and give the impression that we have little - if anything - to learn from others.
 
-*How do we see this attitude in Shane and Kristin?*
-
-They don't listen to each other's perspectives and they don't make an effort to understand the view of the other.
+**DISCUSSION QUESTION:** *How do we see this attitude in Shane and Kristin? (They don't listen to each other's perspectives and they don't make an effort to understand the view of the other)*
 
 We said earlier that relationships can be a means of diagnosing our own weaknesses. The chart in your notes summarizes the effects sin has on a person and his relationships. Using this chart, let's take a few minutes to make a diagnosis of our own sinful condition.
 
