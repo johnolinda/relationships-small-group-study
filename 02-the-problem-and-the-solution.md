@@ -91,7 +91,7 @@ When we convince ourselves that satisfaction can be found apart from God, we can
 
 When we are our own source of truth and wisdom, we forsake the humble, teachable spirit that is vital to a good relationship. We always take the role of mentor and give the impression that we have little - if anything - to learn from others.
 
-**DISCUSSION QUESTION:** *How do we see this attitude in Shane and Kristin? (They don't listen to each other's perspectives and they don't make an effort to understand the view of the other)*
+**DISCUSSION QUESTION:** *How do Shane and Kristin show that they are self-taught? (They don't listen to each other's perspectives and they don't make an effort to understand the view of the other)*
 
 We said earlier that relationships can be a means of diagnosing our own weaknesses. The chart in your notes summarizes the effects sin has on a person and his relationships. Using this chart, let's take a few minutes to make a diagnosis of our own sinful condition.
 
