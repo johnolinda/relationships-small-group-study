@@ -10,7 +10,7 @@ Our problems in relationships have everything to do with sin inside us, and our 
 
 ---
 
-**Editor's Note:** *[The handout can be found here](). I will include supplemental material, most of which is optional. However, this particular handout is one that you definitely should do with your small group. Please see me if you would like me to print copies for you.*
+**Editor's Note:** *[The handout can be found here](https://docs.google.com/document/d/15CdyYKoiqopDbCFMhJs49aGGVJQ8XxTvFK9edlxIzuE/edit?usp=sharing) and [the self-rule chart can be found here](https://docs.google.com/document/d/1TaCXEp-TYW_EWH80AR8UWP4puIu2TAF3lTFRHbxsi2M/edit?usp=sharing).I will include supplemental material, most of which is optional. However, this particular handout is one that you definitely should do with your small group. Please see me if you would like me to print copies for you.*
 
 ---
 
@@ -31,7 +31,7 @@ Let's read Romans 7:21-25 and look more deeply into the issue.
 
 > So I find it to be a law that when I want to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my members another law waging war against the law of my mind and making me captive to the law of sin that dwells in my members. Wretched man that I am! Who will deliver me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my mind, but with my flesh I serve the law of sin.
 
-**DISCUSSION QUESTION:** *Identify some words or phrases that Paul uses to describe his sinful condition. (Law: it is something we will never escape in this life; War: it's a continual internal battle between our flesh and righteousness; Prison: we want to do right, but our sin often pulls against us and takes away our freedom; Rescue: our sin requires outside help; Death: sin brings death and separation both physically and relationally.*
+**DISCUSSION QUESTION:** *Identify some words or phrases that Paul uses to describe his sinful condition. (Law: it is something we will never escape in this life; War: it's a continual internal battle between our flesh and righteousness; Prison: we want to do right, but our sin often pulls against us and takes away our freedom; Rescue: our sin requires outside help; Death: sin brings death and separation both physically and relationally.)*
 
 We can conclude from this passage that our biggest problem is inside us, and we can't repair it alone.
 
