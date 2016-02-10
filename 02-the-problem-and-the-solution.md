@@ -10,7 +10,7 @@ Our problems in relationships have everything to do with sin inside us, and our 
 
 ---
 
-**Editor's Note:** *[The handout can be found here](https://docs.google.com/document/d/15CdyYKoiqopDbCFMhJs49aGGVJQ8XxTvFK9edlxIzuE/edit?usp=sharing) and [the self-rule chart can be found here](https://docs.google.com/document/d/1TaCXEp-TYW_EWH80AR8UWP4puIu2TAF3lTFRHbxsi2M/edit?usp=sharing).I will include supplemental material, most of which is optional. However, this particular handout is one that you definitely should do with your small group. Please see me if you would like me to print copies for you.*
+**Editor's Note:** *[The handout can be found here](https://docs.google.com/document/d/15CdyYKoiqopDbCFMhJs49aGGVJQ8XxTvFK9edlxIzuE/edit?usp=sharing) and [the self-rule chart can be found here](https://docs.google.com/document/d/1TaCXEp-TYW_EWH80AR8UWP4puIu2TAF3lTFRHbxsi2M/edit?usp=sharing). I will include supplemental material, most of which is optional. However, this particular handout is one that you definitely should do with your small group. Please see me if you would like me to print copies for you.*
 
 ---
 
