@@ -13,7 +13,7 @@ The following statements show positive parts of a relationship. But can you iden
 
 Each of these statements reflects what the person gets out of the relationship, and each one is ultimately self-centered.
 
-A wealthy celebrity has just given a sizable donation to a worthy cause. During an interview he is asked "What motivated you to make this donation?" At first glance the gift seems to be a generous act of kindness. But the celebrity answers, "When I wake up in the morning, I can look at myself in the mirror and say that I am a good person. And when I go to bed at night, I can feel good about myself." No doubt the donation will benefit others, but the point is that what looks good on the surface doesn't always look that way under closer inspection. What we get out of them can "drive" even our most altruistic moments.
+A wealthy celebrity has just given a sizable donation to a worthy cause. An interviewer asks him: "What motivated you to make this donation?" At first glance the gift seems to be a generous act of kindness. But the celebrity answers, "When I wake up in the morning, I can look at myself in the mirror and say that I am a good person. And when I go to bed at night, I can feel good about myself." The donation will benefit others, but what looks good on the surface doesn't always look good under close inspection. What we get out of relationships can "drive" even our most most selfless moments.
 
 ## Two Scriptural Themes
 
