@@ -4,7 +4,7 @@
 
 God uses relationships to lead us into growth and sanctification. I need to make God's purpose for relationships my purpose as well. I need to see relationships as a gift from God and work through the issues in relationships to become more like Jesus. So, in your relationships, whose agenda will you seek: God's or your own?
 
-The following statements are good and show positive areas in a relationship, but can you identify the underlying agenda in these statements?
+The following statements show positive parts of a relationship. But can you identify the hidden agenda in these statements?
 
 * "I am so happy we don't argue like we used to."
 * "I just love being with you."
