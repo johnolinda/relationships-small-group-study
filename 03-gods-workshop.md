@@ -19,8 +19,8 @@ A wealthy celebrity has just given a sizable donation to a worthy cause. An inte
 
 Two themes about relationships can be seen in Scripture:
 
-1. The power of self-interest is still present in the believer. While the control of sin is broken, the sin that remains in us still puts up a real fight. We will never escape the power of self-interest in this life, even in our best relationships. In fact, the more satisfying the relationship, the less conscious you will be of self-interest. The most destructive diseases are the ones that don't show themselves in obvious ways. This is true of spiritual illness as well.
-2. God has a bigger agenda for our relationships than we do.
+1. **The power of self-interest is still present in the believer.** Salvation breaks the control of sin but it still puts up a real fight. We will never escape the power of self-interest in this life, even in our best relationships. The more satisfying a relationship is, the less conscious you will be of self-interest. The most destructive diseases are the ones that don't show themselves in obvious ways. This is true of spiritual illness as well.
+2. **God has a bigger agenda for our relationships than we do.** No relationship is insignificant in God's eyes. Each one is an opportunity for him to work in both people.
 
 **DISCUSSION QUESTION:** *What is your dream for your relationships?*
 
