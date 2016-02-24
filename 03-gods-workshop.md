@@ -61,9 +61,9 @@ The basis of our unity is the unity of the Trinity, not our ability to get along
 
 **DISCUSSION QUESTION:** *Can you give ways in which God is humble, patient, gentle, and forbearing? (Christ humbly coming to die on the cross; the Father patiently and gently working out our salvation; the Holy Spirit forbears by abiding with us even in the face of our sin, convicting and correcting, but never condemning.)*
 
-### An Appreciation of Diversity
+### Ephesians 4:7-16: An Appreciation of Diversity
 
-How often do we see diversity as a hindrance to good relationships and God's purposes?
+How often do we see diversity as a problem?
 
 > But grace was given to each one of us according to the measure of Christ's gift. Therefore it says,
 >
@@ -72,41 +72,37 @@ and he gave gifts to men.”
 >
 > (In saying, “He ascended,” what does it mean but that he had also descended into the lower regions, the earth? He who descended is the one who also ascended far above all the heavens, that he might fill all things.) And he gave the apostles, the prophets, the evangelists, the shepherds and teachers, to equip the saints for the work of ministry, for building up the body of Christ, until we all attain to the unity of the faith and of the knowledge of the Son of God, to mature manhood, to the measure of the stature of the fullness of Christ, so that we may no longer be children, tossed to and fro by the waves and carried about by every wind of doctrine, by human cunning, by craftiness in deceitful schemes. Rather, speaking the truth in love, we are to grow up in every way into him who is the head, into Christ, from whom the whole body, joined and held together by every joint with which it is equipped, when each part is working properly, makes the body grow so that it builds itself up in love.
 
-Because it is based in the Trinity, our unity also allows us to celebrate our diversity in the body of Christ. There is one God but three persons. God creates and uses our diversity to accomplish his purpose: our growth in grace. Diversity is not an obstacle but a significant means to this end.
+The Trinity gives us unity, and our unity also allows us to celebrate our diversity in the body of Christ. There is one God but three persons. God creates and uses our diversity to achieve his purpose: our growth in grace. Diversity is not an obstacle to growth. It is the way we grow!
 
 > But grace was given to each one of us according to the measure of Christ's gift.
 
-God has created us with different gifts, different capacities for service, and different levels of maturity. All these differences are there by God's sovereign apportionment. God surrounds us with different people to promote his purpose. Do you tend to get along only with people who are most like you?
+God has created us with different gifts, abilities, and levels of maturity. God created these differences on purpose. God surrounds us with different people to promote his purpose. Do you tend to get along only with people who are most like you?
 
 > ....to equip the saints for the work of ministry, for building up the body of Christ....
 
-God wants us to mature, to be built up, and to stop acting like infants. He wants the things that ruled Christ's heart to rule ours as well. Relationships are God's tool for doing this construction. This is where the true value of relationships runs counter to what we normally think. We think things are going well only if we are getting along with others. By God says that is is also when we are not getting along with others that he is accomplishing his purposes! For example, if you quit at the first sign of fatigue when you exercise, you miss the chance to become more fit. Exercise after exhaustion is the most efficient and productive time for physical fitness. This is true of relationships as well. God has designed our relationships to function as both a diagnosis and a cure. When we are frustrated and ready to give up, God is at work revealing places where we have given in to a selfish agenda.
+God wants us to grow up. He wants the things that ruled Christ's heart to rule ours as well. Relationships are God's tool for doing this construction. This is where the true value of relationships is different than what we think. We think things are going well only if we are getting along with others. But God says that even when we are not getting along with others that he is accomplishing his purposes! If you quit at the first sign of fatigue when you exercise, you miss the chance to become more fit. Exercise after exhaustion is the most efficient and productive time for physical fitness. This is true of relationships as well. God has designed our relationships to function as both a diagnosis and a cure. When we are ready to give up, God is at work revealing places where we have given in to a selfish agenda.
 
-We naturally enter into relationships for personal pleasure, self-actualization, and fun. We want low personal cost and high self-defined returns. But God wants high personal cost and high God-defined returns.
+We enter into relationships for personal pleasure, self-actualization, and fun. We want low personal cost and high self-defined returns. But God wants high personal cost and high God-defined returns. Think of a relationship in your life that has problems because you are two different people. Are you willing to see those differences as God's design so that you can both grow in Christ? What may God want to teach you or reveal to you through this relationship?
 
-Think of a relationship in your life that has problems because you are two very different people. Are you willing to see those differences as God's design so that you may both be built up in Christ? What may God want to teach you or reveal to you through this relationship.
-
-### Our Struggle and God's Agenda
+### Ephesians 4:17-32: Our Struggle and God's Agenda
 
 > Now this I say and testify in the Lord, that you must no longer walk as the Gentiles do, in the futility of their minds. They are darkened in their understanding, alienated from the life of God because of the ignorance that is in them, due to their hardness of heart. They have become callous and have given themselves up to sensuality, greedy to practice every kind of impurity. But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as the truth is in Jesus, to put off your old self, which belongs to your former manner of life and is corrupt through deceitful desires, and to be renewed in the spirit of your minds, and to put on the new self, created after the likeness of God in true righteousness and holiness.
 >
 > Therefore, having put away falsehood, let each one of you speak the truth with his neighbor, for we are members one of another. Be angry and do not sin; do not let the sun go down on your anger, and give no opportunity to the devil. Let the thief no longer steal, but rather let him labor, doing honest work with his own hands, so that he may have something to share with anyone in need. Let no corrupting talk come out of your mouths, but only such as is good for building up, as fits the occasion, that it may give grace to those who hear. And do not grieve the Holy Spirit of God, by whom you were sealed for the day of redemption. Let all bitterness and wrath and anger and clamor and slander be put away from you, along with all malice. Be kind to one another, tenderhearted, forgiving one another, as God in Christ forgave you.
 
-Finally, Paul lays out what relationships look like when God's purpose rules. He identifies seven tendencies of the sinful heart that are damaging to relationships, disruptive of God's purpose, and require persistent battling.
+Finally, Paul explains what relationships look like when God's purpose rules. He identifies seven tendencies of the sinful heart. These are damaging to relationships, disruptive of God's purpose, and need persistent battling.
 
-1. The tendency toward self-indulgence (vv. 19-24): My behavior in the relationship is driven by what I want and not God's purpose.
-2. The tendency toward deceit (v. 25): I will manipulate the truth to get what I want out of the relationship.
-3. The tendency toward anger (vv. 26-27): I want to control the relationship by venting my anger or holding it over you to control you.
-4. The tendency toward selfishness (v. 28): I want to protect what I have rather than offer it to serve you.
-5. The tendency toward unhelpful communication (vv. 29-30): Rather than use my speech to make you feel better and put you in a better position, I speak to make myself feel better and ensure that I am in the top spot.
-6. The tendency toward division (v. 31): I give in to the temptation to view you as an adversary rather than a companion in the struggle of relationship.
-7. The tendency toward an unforgiving spirit (v. 32): I want to make others pay for their wrongs against me.
+1. Self-indulgence (vv. 19-24): My behavior in the relationship is driven by what I want and not God's purpose.
+2. Deceit (v. 25): I will manipulate the truth to get what I want out of the relationship.
+3. Anger (vv. 26-27): I want to control the relationship by venting my anger or holding it over you to control you.
+4. Selfishness (v. 28): I want to protect what I have rather than offer it to serve you.
+5. Unhelpful communication (vv. 29-30): Rather than use my speech to make you feel better and put you in a better position, I speak to make myself feel better and ensure that I am in the top spot.
+6. Division (v. 31): I give in to the temptation to view you as an adversary rather than a companion in the struggle of relationship.
+7. An unforgiving spirit (v. 32): I want to make others pay for their wrongs against me.
 
 **DISCUSSION QUESTION:** *Which of the seven tendencies do you find yourself leaning toward most often?*
 
-Ask God to help change you in this area. Share this problem with another person *who can help*.
-
-We are all tempted by these tendencies. We are not immune even as believers. But when we realize, by God's grace, that relationships demand hard work, we can become willing to enter the struggle rather than avoid it. We see that this is where God is present and active. We begin to run toward others rather than away and can experience the following:
+Ask God to help change you in this area. Share this problem with another person *who can help*. We are all tempted by these tendencies. When we know relationships demand hard work to glorify God, we can enter the struggle rather than avoid it. We see that this is where God is present and active. We begin to run toward others rather than away from them and can experience the following:
 
 * How much wiser God's plan is for us than our plan for ourselves (vv. 19-24)
 * The life changing power of truthfulness (v. 25)
@@ -118,7 +114,7 @@ We are all tempted by these tendencies. We are not immune even as believers. But
 
 **DISCUSSION QUESTION:** *What then is God's agenda for our relationships?*
 
-God wants to use the struggles of our relationships as a means for our growth and sanctification. Like a rock-climbing wall - it takes work, but the work is satisfying when you see where you began and where you ended up; obstacles are in the way but the obstacles are tools for getting to the top if you use them that way. Likewise, relationships are work but can be quite satisfying as we grow and mature, and our struggles are not obstacles but instruments in God's hands. If you look at your own character, you may find some of your deepest growth has been because of great stress and trial.
+God wants to use the struggles of our relationships for our growth and sanctification. A rock-climbing wall takes work, but the work is satisfying when you see your progress. Obstacles are in the way but the obstacles are tools for getting to the top if you use them that way. Likewise, relationships are hard work but can be satisfying as we grow and mature. Our struggles are not obstacles but instruments in God's hands. You may find some of your deepest growth has been because of great stress and trial.
 
 ## Central Point
 
