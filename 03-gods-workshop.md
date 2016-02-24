@@ -46,14 +46,14 @@ What is it about hard work that can be satisfying? Paul knows that relationships
 
 > ....with all humility and gentleness, with patience, bearing with one another in love....
 
-Even before Paul mentions specific actions, he describes four key character qualities that are sometimes the opposite of what drives our relationships.
+Before Paul mentions specific actions, he describes four key character qualities. These are sometimes the opposite of what drives our relationships.
 
 1. Humility: This quality enables us to see our own sin before we focus on the sin and weakness of another. Do you hold others to a higher standard than you do yourself?
-2. Gentleness: A gentle person is not weak, but is someone who uses his strength to empower others. A gentle person can use strength without damaging those he is trying to help. Do people regularly feel bruised in their relationship with you?
-3. Patience: This quality places others' needs higher than or at the same level as our own. We don't come with a self-centered agenda.
-4. Forbearance: A forbearing person is a person who is humble, gentle, and patient even when provoked. Do you love people with limits that are driven by your own perceived needs or interests? Do others feel as if they must always return a favor to keep you happy with them?
+1. Gentleness: A gentle person is not weak, but is someone who uses his strength to empower others. A gentle person can use strength without damaging those he is trying to help. Do people feel bruised in their relationship with you?
+1. Patience: This quality places others' needs higher than or at the same level as our own. We don't come with a self-centered agenda. Do other people feel like their needs aren't important to you?
+1. Forbearance: A forbearing person is humble, gentle, and patient even when provoked. Is your love for others limited by your own perceived needs or interests? Do others feel as if they must always return a favor to keep you happy with them?
 
-Because we have received grace, we are to give grace to others in our relationships. Often, a structure of law, offense, and punishment governs relationships. For example: I have a set of rules you must abide by, I watch to make sure you follow those rules, and I am justified to mete out some form of punishment if you do not. This is a flagrant contradiction of the gospel! God's grace and favor in our lives should reflect his glory and show in our relationships.
+Because we have received grace, we are to give grace to others in our relationships. Often, a structure of law, offense, and punishment governs relationships. I have a set of rules you must obey. I watch to make sure you follow those rules, and I am justified to punish you if you do not. This is against the gospel! God's grace and favor in our lives should reflect his glory and show in our relationships.
 
 > There is one body and one Spirit—just as you were called to the one hope that belongs to your call— one Lord, one faith, one baptism, one God and Father of all, who is over all and through all and in all.
 
