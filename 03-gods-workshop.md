@@ -112,7 +112,7 @@ Ask God to help change you in this area. Share this problem with another person 
 * The beauty of functional unity in a relationship (v. 31)
 * The freedom of practicing forgiveness (v. 32)
 
-**DISCUSSION QUESTION:** *What then is God's agenda for our relationships?*
+**DISCUSSION QUESTION:** *What is God's agenda for our relationships?*
 
 God wants to use the struggles of our relationships for our growth and sanctification. A rock-climbing wall takes work, but the work is satisfying when you see your progress. Obstacles are in the way but the obstacles are tools for getting to the top if you use them that way. Likewise, relationships are hard work but can be satisfying as we grow and mature. Our struggles are not obstacles but instruments in God's hands. You may find some of your deepest growth has been because of great stress and trial.
 
