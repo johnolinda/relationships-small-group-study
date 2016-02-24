@@ -24,15 +24,13 @@ Two themes about relationships can be seen in Scripture:
 
 **DISCUSSION QUESTION:** *What is your dream for your relationships?*
 
-In all things, God has a purpose and design. God's purpose and design for relationships is to conform us to the image of Christ! Does this match with your dream?
+God has a purpose and plan for everything. God's purpose and plan for relationships is to make us more like Christ! Does this match your dream?
 
 ## God's Desire for Our Relationships
 
-We all have a dream for our relationships; and because our dream is often what we want, in the way we want, and at the time we want, it tends to lead to impatience, vengeance, lying, manipulation, envy, competition, disgust, hostility, or anger. Ephesians 4 shows us what God wants our relationships to be.
+We all have a dream for our relationships. Our dream is often what we want, in the way we want, and at the time we want. This leads to impatience, vengeance, lying, manipulation, envy, competition, disgust, hostility, or anger. Ephesians 4 shows us what God wants our relationships to be like.
 
-Paul urges us to live a life worthy of the calling we have received. Our lives should reflect this calling we have received! Specifically, Paul says it should show up in our relationships in the body of Christ. In other words, you can't take the Gospel seriously and not take your relationships seriously.
-
-As we consider this passage, ask yourself whether this is how you think about your relationships. It may be helpful to use this list to think about one particular relationship.
+Paul tells us to live a life worthy of the calling we have received. Our lives should reflect this calling! Paul says it should show up in our relationships in the body of Christ. If you care about the Gospel, then you care about your relationships. As we read Ephesians 4, ask yourself whether this is how you think about your relationships. It may be helpful to use this list to think about one relationship.
 
 ### Ephesians 4:1-6: A Call to Unity
 
@@ -42,7 +40,7 @@ Do we seek unity in our relationships?
 
 > ....eager to maintain the unity of the Spirit in the bond of peace.
 
-Paul says that we are to maintain - not create - these relationships. If we are Christians, we automatically are in relationship with other Christians. We are united with other believers because we are united with Christ and share the same spirit. Therefore, our relationships are gifts to be managed and taken care of. Gossip, slander, anger, and so on, devalue and harm these gifts. If we are willing to pursue, forgive, and serve, we demonstrate care for these gifts. Is there a relationship you struggle to see as a gift? If so, are you willing to ask God to change your heart and your perspective?
+Paul says that we are to maintain - not create - this unity. If we are Christians, we are in relationship with other Christians. The Holy Spirit unites us. Our relationships with each other are gifts. And just like any gift we appreciate, we should treat them with care. Gossip, slander, anger, and so on, harm these gifts. If we are willing to pursue, forgive, and serve, we show care for these gifts. Is there a relationship you struggle to see as a gift? If so, are you willing to ask God to change your heart and your perspective?
 
 What is it about hard work that can be satisfying? Paul knows that relationships, even among people who have the Spirit, will not be easy. The biblical work ethic for relationships is that it will require work and that the work is worth it when we have God's glory and praise in mind. Many give up when the relationship requires work or when we place ourselves at the center instead of God's calling. When we place ourselves as the purpose of relationships, we often decide the return is not worth the investment. Is there a relationship you should put more work and effort into?
 
