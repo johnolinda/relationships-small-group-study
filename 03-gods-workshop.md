@@ -59,7 +59,7 @@ Because we have received grace, we are to give grace to others in our relationsh
 
 The basis of our unity is the unity of the Trinity, not our ability to get along. We get along because Father, Son, and Spirit have allowed us to do so.
 
-**DISCUSSION QUESTION:** *Can you give ways in which God is humble, patient, gentle, and forbearing? (Christ humbly coming to die on the cross; the Father patiently and gently working out our salvation; the Holy Spirit forbears by abiding with us even in the face of our sin, convicting and correcting, but never condemning.)*
+**DISCUSSION QUESTION:** *Can you describe ways that God shows humility, patience, gentleness, and forbearance? (Christ humbly coming to die on the cross; the Father patiently and gently working out our salvation; the Holy Spirit forbears by abiding with us even in the face of our sin, convicting and correcting, but never condemning.)*
 
 ### Ephesians 4:7-16: An Appreciation of Diversity
 
