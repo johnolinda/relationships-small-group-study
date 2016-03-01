@@ -20,7 +20,7 @@ We all try to make sense out of life by telling ourselves who we are. We all hav
 
 **DISCUSSION QUESTION:** *What identities had Matt and Rob built their relationship on? (Rob seems to be getting his identity from success and achievement but feels as if Matt is in his way; Matt seems to be resting his identity on gaining respect and acceptance from Rob, but feels as if Rob doesn't need or appreciate him)*
 
-The Bible provides examples of people who forgot their identities and the wrong reactions that followed, as well as people who remembered their true identities and their proper reactions. In the following examples, see if you can identify (1) what true identity each person replaced, (2) the false identity that replaced it, and (3) the reaction and result from the false identity. Let me give an example before we begin:
+The Bible provides examples of people who forgot their identities and their wrong reactions. The Bible also presents people who remembered their true identities and their proper reactions. See if you can identify the true identity each person forgot, the false identity that replaced it, and the result of the false identity. Let me give an example before we begin:
 
 *Example: Adam and Eve eating from the forbidden tree*
 
