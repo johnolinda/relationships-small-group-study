@@ -64,7 +64,7 @@ God made us in his image. So we cannot talk about human relationships without th
 
 Are there any relationships in your life you need to correct your perspective on? God designed us to be relational. It is our nature, and it is one way in which we reflect the image of God. And *only* when we live in community do we reflect the likeness of God. Relationships are not optional! Because of sin, relationships can be messy, but they are not optional.
 
-Problems in relationships are often rooted in our selfish desires. We seek to fulfill our own perceived wants and needs instead of seeking to please God. If there are problems in your relationships, the solution starts with God. Human communities are only healthy when they exist within a relationship with God.
+Problems in relationships are often based in our selfish desires. We try to fulfill our own perceived wants and needs instead of pleasing God. If there are problems in your relationships, the solution starts with God. Human communities are only healthy when they exist within a relationship with God.
 
 ## Central Point & Application
 
