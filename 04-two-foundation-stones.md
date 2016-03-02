@@ -96,9 +96,9 @@ If you have been fearfully and wonderfully made, what does that mean in how you 
 
 **DISCUSSION QUESTION:** *If you worship God as the Creator, what is your role in trying to change others? (My role is only to love and appreciate the creation and point them in the direction of the one who can change them)*
 
-Although we would say that God is the Creator of all things, it is quite easy to worship him as Creator on Sunday and then curse his work during the week. We do this when we are dissatisfied with the way God has made the people we relate to each day. In fact, we often ascend his throne and do all we can to recreate others in our *own* image!
+We say that God is the Creator of all things. It's easy to worship him as Creator on Sunday and then curse his work during the week. Dissatisfaction with the way God has made the people we relate to each day is just like cursing his work. In fact, we often sit on his throne and try to recreate others in our *own* image!
 
-Have you ever tried to make someone just like you? Without realizing it, that is what Matt and Rob were doing to each other. Rob was a visionary who was trying to turn his detail-oriented partner into a dreamer. Matt was an administrator who was trying to recreate Rob into his own image (for the sake of the company, of course!). If you are not affirming the glory of God in the way he made another (including all the ways someone is different from you), you will be frustrated with who the other person is and tempted to remake them in some way. If I am ever going to value who you are and enjoy our differences, I must look at you and see the wisdom of the Creator.
+Have you ever tried to make someone just like you? Without realizing it, that is what Matt and Rob were doing to each other. Rob was a visionary who was trying to turn his detail-oriented partner into a dreamer. Matt was an administrator who was trying to recreate Rob into his own image. If you are not affirming God's glory in the way he made others, it will frustrate you. You won't be happy with who the other person is and you'll try to remake them in some way. If I am ever going to value who you are and enjoy our differences, I must look at you and see the wisdom of the Creator.
 
 #### Worshipping God as Sovereign
 
