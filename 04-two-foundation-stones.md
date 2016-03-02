@@ -108,13 +108,11 @@ Acts 17:26 shows us another aspect of God:
 
 **DISCUSSION QUESTION:** *If it is God who has determined our backgrounds, how should we see and treat the differences between us? (We need to respect and appreciate those differences)*
 
-God has specifically and personally determined the details of each of our lives. When I look at you I need to see God's hand perfectly writing your story. The person you are and the responses you make to life have been shaped by his sovereign choices and your responses to the story he has written for you.
+God has determined the details of each of our lives. When I look at you I need to see God writing your story. God's sovereign choices and your responses to the story he has written for you have shaped who you are.
 
-He determined that you would be part of the customs and culture of a certain ethnic group. He planned that you would be shaped by living in a certain geographical setting. He determined that you would live in a particular family, with all its powerfully influential values and rules, spoken and unspoken.
+He determined that you would be part of the customs and culture of a certain ethnic group. He planned that you would live in a certain geographical setting. He determined that you would live in a particular family. A family with influential values and rules, spoken and unspoken.
 
-He also determined that you would be involved in relationships and situations outside your home that would have a powerful influence on everything you do. A relationship is the intersection of the stories of two people. The problem is that an awful lot of carnage takes place at this intersection.
-
-If I fail to honor God's sovereignty in the influences he has placed in your life and the way those influences have shaped you, I will attempt to take God's place and clone you into my image. I will tend to think my way is better than your way.
+He determined that you would be in relationships and situations that would influence everything you do. A relationship is the intersection of the stories of two people. The problem is that an awful lot of problems happen at this intersection. If I fail to honor God's sovereign influences in your life and the way those influences have shaped you, I will try to take God's place and change you into my image. I will tend to think my way is better than your way.
 
 Are you frustrated with someone in your life? Are you trying to reshape that person to fit into your personal preferences?
 
@@ -126,9 +124,9 @@ Though God has made us all unique, we are exactly the same in two ways according
 
 **DISCUSSION QUESTION:** *According to this passage what are the two ways we are the same? (We are all sinners, and we are all saved through faith in Jesus Christ)*
 
-Worshiping God as Savior means that we acknowledge that we are sinners in relationships with other sinners. We remember that others are still in the middle of God's work of redemption - as we are - and that he is faithfully working in others at the best time and in the best way possible. None of us gets to be in relationships with finished persons. When we forget that we are sinners saved by grace, we become self-righteous, impatient, critical, and judgmental. We give in to the temptation to play God and try to change others in ways only God can.
+Worshiping God as Savior means that we acknowledge that we are sinners. We are sinners in relationships with other sinners. We remember that we are all still in the middle of God's work of redemption. He is working with others at the best time and in the best way possible. None of us gets to be in relationships with finished people. When we forget that we are sinners saved by grace, we become self-righteous, impatient, critical, and judgmental. We give in to the temptation to play God and try to change others in ways only God can.
 
-When we fail to worship God as Savior, we are too casual about our sin and too focused on others'. Our relationships are often harmed when we try to atone for our own sins while condemning others for theirs. When we are sinned against, we will be affected by the weaknesses and failures of others, but we need to allow God to use us as instruments in his redemptive hands rather than seek to make changes in other people whom only God can change.
+When we fail to worship God as Savior, we are too casual about our sin and too focused on others'. When we try to justify our own sins while condemning others' our relationships suffer. The weaknesses and failures of others affect us when they sin against us. We need to allow God to use us as tools in his hands rather than seek to make changes in other people whom only God can change.
 
 Are you trying to do work in someone's life that only the Savior can do?
 
