@@ -61,7 +61,7 @@ Who we tell ourselves we are has quite a powerful impact on the way we deal with
 
 No human being was ever meant to be the source of personal joy and contentment for someone else. No sinner is going to be able to provide that day after day in a close relationship like marriage! Our spouse, our friends, and our children cannot be the sources of our identity. If we seek our identity from others, we will watch, listen, and depend on them in ways they can't handle. We will ride the roller coaster of their best and worst moments. We will become frustrated with their weaknesses and failures. We will become critical, disappointed, hopeless, and angry because they fail to provide the identity we want. As a result, we will have damaged relationships filled with hurt, frustration, and anger. Remember that Christ has given us everything we need to be the people he has designed us to be. That frees us to serve and love others. We are free to be humble, patient, gentle, and forbearing.
 
-**DISCUSSION QUESTION:** *Is there evidence that you are looking to your relationships to give you things you have in Christ? What symptoms can you identify (anger, frustration, fear, disappointment, hurt, hopelessness, etc)?*
+**DISCUSSION QUESTION:** *Are you relying on your relationships to give you things you have in Christ? What symptoms can you identify (anger, frustration, fear, disappointment, hurt, hopelessness, etc)?*
 
 ### Remembering Who God Is
 
