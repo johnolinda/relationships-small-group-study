@@ -92,7 +92,7 @@ Psalm 139:13-16 has a lot to say about who we are and who God is:
 > the days that were formed for me,  
 > when as yet there was none of them.
 
-If you have been fearfully and wonderfully made, what does that mean in how you see and treat others? They are not a mistake in any way. The shape of their body, the sound of their voice, their personality, and their intellectual and natural abilities are all designed by God - they were crafted by a gloriously wise Creator.
+If you have been fearfully and wonderfully made, what does that mean in how you see and treat others? They are not a mistake in any way. The shape of their bodies, the sound of their voices, their personalities, and their abilities are all designed by God. A glorious, wise Creator made them just the way they are.
 
 **DISCUSSION QUESTION:** *If you worship God as the Creator, what is your role in trying to change others? (My role is only to love and appreciate the creation and point them in the direction of the one who can change them)*
 
