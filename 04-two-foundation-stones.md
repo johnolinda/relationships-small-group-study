@@ -65,7 +65,7 @@ No human being was ever meant to be the source of personal joy and contentment f
 
 ### Remembering Who God Is
 
-Just as we all look for identity, we are also all worshipers. But we are not talking about worship as a formal religious activity, but rather as an identity - what it is that controls our hearts. Our hearts are always under the control of something and whatever controls our hearts controls our behavior. What does Jesus say about worship in Matthew 6:19-24?
+Just as we all look for our identity, we are also all worshipers. But we are not talking about worship as a formal religious activity, but rather as an identity. What controls our hearts? Our hearts are always under the control of something. Whatever controls our hearts controls our behavior. What does Jesus say about worship in Matthew 6:19-24?
 
 > “Do not lay up for yourselves treasures on earth, where moth and rust destroy and where thieves break in and steal, but lay up for yourselves treasures in heaven, where neither moth nor rust destroys and where thieves do not break in and steal. For where your treasure is, there your heart will be also.
 >
@@ -73,7 +73,7 @@ Just as we all look for identity, we are also all worshipers. But we are not tal
 >
 > “No one can serve two masters, for either he will hate the one and love the other, or he will be devoted to the one and despise the other. You cannot serve God and money.
 
-Jesus says what we worship (our treasure) is what will control us (where our hearts will be). We cannot serve two masters - we will serve what we value most. This has an interesting application for relationships. Often when we value something other than pleasing God, we will end up valuing and serving ourselves; but when we value God, we will serve and love others. Here are three ways that our worship of God affects our relationships with others:
+Jesus says what we worship (our treasure) is what will control us (where our hearts will be). We cannot serve two masters - we will serve what we value most. This has an interesting application for relationships. When we value something other than pleasing God, we end up valuing and serving ourselves. When we value God, we will serve and love others. There are three basic ways that our worship of God affects our relationships with others.
 
 #### Worshiping God as Creator
 
