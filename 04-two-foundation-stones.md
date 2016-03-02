@@ -106,7 +106,7 @@ Acts 17:26 shows us another aspect of God:
 
 > And he made from one man every nation of mankind to live on all the face of the earth, having determined allotted periods and the boundaries of their dwelling place....
 
-**DISCUSSION QUESTION:** *If it is God who has determined our backgrounds, how should we see and treat the differences between us? (We need to respect and appreciate those differences)*
+**DISCUSSION QUESTION:** *If God determined our backgrounds, how should we see and treat the differences between us? (We need to respect and appreciate those differences)*
 
 God has determined the details of each of our lives. When I look at you I need to see God writing your story. God's sovereign choices and your responses to the story he has written for you have shaped who you are.
 
