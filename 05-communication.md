@@ -48,11 +48,11 @@ Our words always have direction. They can either be constructive or destructive.
 
 ## Our Words Belong to the Lord
 
-Genesis 1 makes clear God spoke the first words ever spoken. Language is not a human invention and therefore belongs to God. Language is his creation. Words are a gift calling us to live and speak in a God-focused manner. One of our greatest mistakes in communication is to take words as our own to use as we please. This is what a teenager does as he publicly mocks a friend. This is what a husband does when he criticizes his wife at dinner. This is what friends do as they gossip on the phone. This is what the demanding, critical parent does. They are all stealing God's glory by treating words as their own creation.
+Genesis 1 makes clear God spoke the first words ever spoken. Language is not a human invention and so belongs to God. Language is his creation. Words are a gift calling us to live and speak in a God-focused manner. One of our greatest mistakes in communication is to take words as our own to use as we please. This is what a teenager does as he mocks a friend. This is what a husband does when he criticizes his wife at dinner. This is what friends do as they gossip on the phone. This is what the demanding, critical parent does. They are all stealing God's glory by treating words as their own creation.
 
 ## The World of Talk Is a World of Trouble
 
-If you are honest, you have to admit that your relationships have been troubled by words as much as they have been helped. Who can honestly say that all his words are well intentioned and appropriately spoken? Who has not hurt someone with words or used words in a selfish manner? Who has not turned the gift of language into a weapon of anger? James 3:2b says:
+You have to admit that words trouble your relationships as much as they help. Who can say that all his words are well intentioned and spoken? Who has not hurt someone with words or used words in a selfish manner? Who has not turned the gift of language into a weapon of anger? James 3:2b says:
 
 > If any man offend not in word, the same is a perfect man, and able also to bridle the whole body.
 
@@ -66,13 +66,13 @@ Luke 6:45 says:
 
 **DISCUSSION QUESTION:** *According to Jesus, where do our words come from? (Our hearts)*
 
-What's the real problem when our words create conflict? The condition of our heart is the problem. Our problem with words is not primarily a matter of vocabulary, skill, or timing; it is always the attitude, thoughts, desires, emotions, and purposes that dwell within us.
+What's the real problem when our words create conflict? The condition of our heart is the problem. Our problem with words is not a matter of vocabulary, skill, or timing. It is always the attitude, thoughts, desires, emotions, and purposes that dwell within us.
 
-Have you ever said, "Oops! I didn't mean to say that"? Often it would be more accurate to say, "I'm sorry I said what I meant"! The real problem with our communication is *what we want to say* and *why we want to say it.* The problem actually begins before the words are even spoken. Christ says the heart shapes the *what* and the *why*. Therefore, if we hope to transform the way we talk to one another, the heart must change first.
+Have you ever said, "Oops! I didn't mean to say that"? Often it would be more accurate to say, "I'm sorry I said what I meant"! The real problem with our communication is *what we want to say* and *why we want to say it.* The problem actually begins before the words are even spoken. Christ says the heart shapes the *what* and the *why*. So, if we hope to transform the way we talk to one another, the heart must change first.
 
 ## Talking Like an Ambassador
 
-What does it mean to communicate like an ambassador? Does it mean that we quote Scripture incessantly or constantly point out the sin in others? Does it mean we can never talk about sports or the weather? What about the daily need to discuss the details of life - schedules, responsibilities, problems, and plans - with people? Ephesians 4:29-30 says:
+What does it mean to communicate like an ambassador? Does it mean that we quote Scripture or point out the sin in others? Does it mean we can never talk about sports or the weather? What about the daily need to discuss the details of life? Things like schedules, responsibilities, problems, and plans? Ephesians 4:29-30 says:
 
 > Let no corrupting talk come out of your mouths, but only such as is good for building up, as fits the occasion, that it may give grace to those who hear. And do not grieve the Holy Spirit of God, by whom you were sealed for the day of redemption.
 
@@ -82,7 +82,7 @@ Here is a practical model of ambassadorial communication. Speaking as an ambassa
 
 > ...only such as is good for building up...
 
-Wholesome communication is others-centered. When our words are shaped more by our interests than others', they lose their shelter from difficulty. Paul says we should never say anything that is not helpful for others. Because God is focused on remaking us into his image, we should speak in a way that builds people up as well. We are his ambassadors. We now have a redemptive agenda for talking about everything. We want all of our talk to be constructive, from the most mundane details to the huge life decisions. As ambassadors, we never want our words to be obstacles to what the King is doing. Our words must always be others-centered.
+God-honoring communication is others-centered. Paul says we should never say anything that is not helpful for others. God focuses on remaking us into his image. We should speak in a way that builds people up as well. We are his ambassadors. We now have a redemptive agenda for talking about everything. We want all our talk to be constructive, from the most mundane details to the huge life decisions. As ambassadors, we never want our words to be obstacles to what the King is doing. Our words must always be others-centered.
 
 ### Consider the Problem
 
@@ -90,15 +90,15 @@ Earlier in the passage, Paul says:
 
 > ...share with anyone in need....
 
-Ambassadors who are always centered on others also must always be asking, "What is the problem at this moment?" Before we speak we must think about what *others* are struggling with and what *others* most need. Do they need encouragement, comfort, hope, direction, wisdom, courage, rebuke, warning, forgiveness, patience, teaching, correction, thanks, a job description, or something else? Our words are shaped by their needs. An ambassador's words always address the person's true need of the moment.
+Ambassadors who focus on others must always be asking, "What is the problem at this moment?" Before we speak we must think about what *others* are struggling with and what *others* need most. Do they need encouragement, comfort, hope, or direction? Do they need wisdom, courage, rebuke, or a warning? Do they need forgiveness, patience, teaching, correction, thanks, a job description, or something else? Their needs shape our words. An ambassador's words always address the other person's true need of the moment.
 
 ### Consider the Process
 
 > ...give grace to those who hear....
 
-This means that we focus on the best way to say what needs to be said. Ambassadorial communication is not only about the content of our words but the manner in which they are spoken. Often we choose to say the right thing at the wrong time or in the wrong way. But the communication process needs to benefit the person as much as the content of the words. Confronting a teenager five minutes before she leaves for school is not helpful, even if the content is accurate. Rebuking a friend for an offense in front of others is not helpful. Asking your spouse to consider how much they hurt you as they are trying to get to sleep is not helpful. An ambassador seeks to speak the right thing in the best way.
+This means that we focus on the best way to say what needs to be said. Ambassadorial communication is not only about what we say. It's also about how we say it. Often we choose to say the right thing at the wrong time or in the wrong way. But the communication process needs to benefit the person as much as the content of the words. Confronting a teenager five minutes before she leaves for school is not helpful, even if the content is accurate. Rebuking a friend for an offense in front of others is not helpful. Asking your spouse to consider how much they hurt you as they are trying to get to sleep is not helpful. An ambassador seeks to speak the right thing in the best way.
 
-Will you be Christ's ambassador to those he places you in relationship with? Our relationships have been designed as workrooms for redemption, not shelters for human happiness. Paul's practical model to guide our words ends with something very interesting: "Do not grieve the Holy Spirit." Not only to our self-centered, unhelpful, and untimely words hurt and grieve other people, they also grieve the Lord.
+Will you be Christ's ambassador to those he places you in relationship with? God has designed our relationships as workrooms for sanctification, not shelters for human happiness. Paul's model for our words ends with this: "Do not grieve the Holy Spirit." Not only do our self-centered or unhelpful words hurt other people, they also grieve the Lord.
 
 ## Central Point
 
