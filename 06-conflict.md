@@ -12,9 +12,9 @@ As the two talked, the origin of the problem began to emerge. Hannah had said ho
 
 It's inevitable. If we live with other sinners, we will have conflict. The closer we are to others, the more potential there is for conflict.
 
-**DISCUSSION QUESTION:** *Evaluate Hannah and Ashley's conflict. What do you think is the root of the problem?*
+**DISCUSSION QUESTION:** *What do you think is the root of Ashley and Hannah's problem?*
 
-Though Hannah's words were subtle, they were the overflow of her heart, which means they were calculated to make Ashley look bad. The desire to look better than Ashley was already in Hannah's heart before the worlds were spoken. Hannah did not see Ashley's temperament as God's sovereign design but as sin. Hannah did not extend grace to Ashley as God would want her to do, and she did not speak out of Ashley's best interest. Ashley did not look to be Christ's ambassador to Hannah and speak in the best manner. Instead of looking for God's  power, Ashley took on the role of judge and accuser. Ashley did not move toward the relationship as Christ's ambassador but distanced herself and her feelings from Hannah.
+Though Hannah's words were subtle, they were the overflow of her heart. She calculated them to make Ashley look bad. The desire to look better than Ashley was already in Hannah's heart before she spoke the words. Hannah did not see Ashley's temperament as God's sovereign design but as sin. Hannah did not extend grace to Ashley as God would want her to do, and she did not speak out of Ashley's best interest. Ashley did not look to be Christ's ambassador to Hannah and speak in the best manner. Instead of looking for God's  power, Ashley took on the role of judge and accuser. Ashley did not move toward the relationship as Christ's ambassador. Instead, she distanced herself and her feelings from Hannah.
 
 **DISCUSSION QUESTION:** *What do you think will restore the relationship?*
 
@@ -22,23 +22,25 @@ Though Hannah's words were subtle, they were the overflow of her heart, which me
 
 Relationships are costly but so is avoiding them. If we choose to avoid relationships and the conflicts that arise, we will minimize the conflict in our lives, but we will also miss out on God's redemptive work in our lives.
 
-**DISCUSSION QUESTION:** *What is your tendency: to avoid conflict or rush into it? Do you move into conflict with a God-centered perspective?*
+**DISCUSSION QUESTION:** *Do you tend to avoid conflict or rush into it?*
 
-Remember, Father, Son, and Spirit were torn apart when Jesus died so that we might love one another. God wants to make us more like Christ, and he wants to use others to make that happen. We must be willing to face conflict and deal with it in a God-centered way.
+**DISCSUSSION QUESTION:** *Do you move into conflict with a God-centered perspective?*
+
+Remember, Jesus' death tore apart the Father, Son, and Spirit so that we might love one another. God wants to make us more like Christ, and he wants to use others to make that happen. We must be willing to face conflict and deal with it in a God-centered way.
 
 ### The Cause and Cure of Ungodly Conflict
 
-Why can't at least one relationship in our lives come with a "no conflict" label attached to it? Some people think that is what marriage or dating is for, and these people are in for a surprise! In reality, marriage is the most likely place for conflict, but close relationships such as marriage are also the most likely places for supernatural change to occur.
+Why can't one relationship in our lives come with a "no conflict" label attached to it? Some people think that is what marriage or dating is for, and these people are in for a surprise! In reality, marriage is the most likely place for conflict. Close relationships such as marriage are also the most likely places for supernatural change.
 
-If we have a problem, conflict is a good one to have. Why? Because conflict is a problem the Bible addresses quite directly. We don't have to be expert Bible scholars to get help here. All we need is a heart that is ready and willing to hear the answer. Part of that answer is in James 4:1-10:
+If we have a problem, conflict is a good one to have. Why? Because conflict is a problem the Bible addresses. We don't have to be expert Bible scholars to get help here. All we need is a heart that is ready and willing to hear the answer. Part of that answer is in James 4:1-10:
 
 > What causes quarrels and what causes fights among you? Is it not this, that your passions are at war within you? You desire and do not have, so you murder. You covet and cannot obtain, so you fight and quarrel. You do not have, because you do not ask. You ask and do not receive, because you ask wrongly, to spend it on your passions. You adulterous people! Do you not know that friendship with the world is enmity with God? Therefore whoever wishes to be a friend of the world makes himself an enemy of God. Or do you suppose it is to no purpose that the Scripture says, “He yearns jealously over the spirit that he has made to dwell in us”? But he gives more grace. Therefore it says, “God opposes the proud, but gives grace to the humble.” Submit yourselves therefore to God. Resist the devil, and he will flee from you. Draw near to God, and he will draw near to you. Cleanse your hands, you sinners, and purify your hearts, you double-minded. Be wretched and mourn and weep. Let your laughter be turned to mourning and your joy to gloom. Humble yourselves before the Lord, and he will exalt you.
 
 **DISCUSSION QUESTION:** *According to this passage in James, why do we fight with one another? (Our own desires; not getting what we want)*
 
-James says the root of conflict is within *us*. Often our typical response to conflict is to point the finger at the other person. We say things such as, "I did that because you..." or "I wouldn't be so angry if you wouldn't...." We like to justify our response because the other person has done something annoying, frustrating, or even downright sinful. But James is clear; conflict arises from the desires that battle within us. The word *desire* that James uses here is a word that would be better translated as "selfish desire." All desires are not wrong, but selfish desire is.
+James says the root of human conflict is within *us*. Often our typical response to conflict is to point the finger at the other person. We say things such as, "I did that because you..." or "I wouldn't be so angry if you wouldn't...." We like to justify our response. After all, the other person has done something annoying, frustrating, or even downright sinful. But James is clear; conflict arises from the desires that battle within us. The word *desire* that James uses here is a word that would be better translated as "selfish desire." All desires are not wrong, but selfish desires are.
 
-Think of a recent conflict you had with someone. Identify the desire in your heart that led to the conflict by taking a look at the desires below. They are not sinful, in and of themselves, until they become selfish desires. They also can be revealed by what we fear, because often what we hear is not getting what we want. Do you identify with any of these temptations? Were one of these desires in your heart during your last conflict?
+Think of a recent conflict you had with someone. Identify the desire in your heart that led to the conflict by taking a look at the desires below. They are not sinful until they become selfish desires. Fear often reveals them, because often what we fear is not getting what we want. Do you identify with any of these temptations? Were one of these desires in your heart during your last conflict?
 
 - Comfort: I want, must have, and deserve to be comfortable, and you'd better not get in the way of me getting it! (I fear hard work and sacrifice.)
 - Pleasure: I want, must have, and deserve to feel good, and you'd better make me feel that way! (I fear pain.)
