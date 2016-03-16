@@ -1,14 +1,14 @@
 # Conflict
 
-Relationships inevitably bring conflict but also growth. I need to face conflict and be willing to identify the selfish desires of my heart that lead to conflict. I need to commit to working through conflict for the good of the relationship, be willing to accept and confess my sin, and consider the needs of the other person. What are the sinful desires that lead to conflict?
+Relationships bring conflict but also growth. I need to face conflict and be willing to identify the selfish desires of my heart that lead to conflict. I need to commit to working through conflict for the good of the relationship. I must be willing to accept and confess my sin, and consider the needs of the other person. What are the sinful desires that lead to conflict?
 
-For the better part of five years, Ashley and Hannah had worked side by side in campus ministry. They loved what they did, and they loved doing it together. But Hannah had been slowly seeking to undermine Ashley's relationship with the students. She wanted to be seen as the one who was more capable and in charge. To put it bluntly, she wanted to students to like and admire her more than Ashley. Now Ashley felt things had gotten out of control. Once again her friend had just hurt her, so she made an appointment to meet with Hannah to speak her mind.
+For the better part of five years, Ashley and Hannah had worked side by side in campus ministry. They loved what they did, and they loved doing it together. But Hannah had been seeking to undermine Ashley's relationship with the students. She wanted others to see her as the one who was more capable and in charge. She wanted to students to like and admire her more than Ashley. Now Ashley felt things had gotten out of control. Once again her friend had just hurt her, so she made an appointment to meet with Hannah to speak her mind.
 
-Ashley began the meeting accusing Hannah of talking about her negatively to some students. "I can't believe you talk that way behind my back! I have never done that to you, and I never would." Ashley's hurt had boiled over into anger and accusation.
+Ashley began the meeting accusing Hannah of talking about her to some students. "I can't believe you talk that way behind my back! I have never done that to you, and I never would." Ashley's hurt had boiled over into anger and accusation.
 
 Hannah denied everything. "I can't believe you would accuse me of saying those things to other people. I thought our friendship was stronger than that. How come you have held this in for five years? Why didn't you just come to me earlier?"
 
-As the two talked, the origin of the problem began to emerge. While talking to someone who did not care for Ashley, Hannah had made a casual comment about how "task-oriented" Ashley could be. She said it was a real pain sometimes to live with her. This remark took on a life of its own when the person repeated it to others with her own embellishments. Eventually the word found its way back to Ashley. By then it sounded as if Hannah saw her friend as a task-oriented demon who just used people to accomplish her ministry goals.
+As the two talked, the origin of the problem began to emerge. Hannah had said how "task-oriented" Ashley could be to someone who didn't like Ashley. She said it was a real pain sometimes to live with her. This remark took on a life of its own when the person repeated it to others with her own embellishments. The word found its way back to Ashley. By then it sounded as if Hannah saw her friend as a task-oriented demon. It seemed like she just used people to accomplish her ministry goals.
 
 It's inevitable. If we live with other sinners, we will have conflict. The closer we are to others, the more potential there is for conflict.
 
