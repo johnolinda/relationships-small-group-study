@@ -42,18 +42,20 @@ James says the root of human conflict is within *us*. Often our typical response
 
 Think of a recent conflict you had with someone. Identify the desire in your heart that led to the conflict by taking a look at the desires below. They are not sinful until they become selfish desires. Fear often reveals them, because often what we fear is not getting what we want. Do you identify with any of these temptations? Were one of these desires in your heart during your last conflict?
 
-- Comfort: I want, must have, and deserve to be comfortable, and you'd better not get in the way of me getting it! (I fear hard work and sacrifice.)
-- Pleasure: I want, must have, and deserve to feel good, and you'd better make me feel that way! (I fear pain.)
-- Recognition: I want, must have, and deserve to be recognized, or I will be devastated. (I fear being overlooked or unnoticed.)
-- Power: I want, must have, and deserve power, and you'd better do what I say! (I fear being told what to do.)
-- Control: I want, must have, and deserve control, and you will feel the brunt of my disappointment if you mess up my tidy little universe! (I fear unpredictability and the unknown.)
-- Acceptance: I want, must have, and deserve acceptance, and you are responsible for giving it to me. (I fear rejection.)
+- Comfort: I want, need, and deserve to be comfortable, and you'd better not get in the way of me getting it! I fear hard work and sacrifice.
+- Pleasure: I want, need, and deserve to feel good, and you'd better make me feel that way! I fear pain.
+- Recognition: I want, need, and deserve to be recognized, or I will be devastated. I fear being overlooked or unnoticed.
+- Power: I want, need, and deserve power, and you'd better do what I say! I fear being told what to do.
+- Control: I want, need, and deserve control, and you will feel the brunt of my disappointment if you mess up my tidy little universe! I fear unpredictability and the unknown.
+- Acceptance: I want, need, and deserve acceptance, and you are responsible for giving it to me. I fear rejection.
 
-**DISCUSSION QUESTION:** *Which of these desires has become more important to you than you relationship to God? Which of these desires most often leads to conflict in your life?*
+Which of these desires has become more important to you than you relationship to God?
+
+**DISCUSSION QUESTION:** *Which of these desires most often leads to conflict in your life?*
 
 **DISCUSSION QUESTION:** *In James 4:4, what does it mean to be a "friend of the world"? (To make yourself and your selfish desires more important than God's glory)*
 
-Ashley and Hannah had made recognition and reputation more important than God's glory and grace. They had made a piece of creation their best friend and primary focus.
+Ashley and Hannah made recognition and reputation more important than God's glory and grace. They made a piece of creation their best friend and primary focus.
 
 **DISCUSSION QUESTION:** *Do you find anything encouraging in James 4:4? (We can only be adulterous because we are married to God; he loves us as in a marriage relationship; we are also considered God's friends; though God is absolutely holy, he still loves us as his bride and accepts us as his friends)*
 
@@ -61,13 +63,13 @@ The next time you experience ungodly irritation with a friend, spouse, coworker,
 
 ## What Does God Do to People Who Forsake Him for Something Else?
 
-Consider a married couple where one partner has an affair. This person has betrayed the one to whom he is supposed to be most committed. What would you expect the offended spouse to do? Would you expect that person to act as if nothing had happened? What if the offended spouse said, "Oh, that's okay"? Wouldn't you wonder whether that person really cared about the relationship? If the offended person was even slightly invested in the marriage, you would expect to see some jealousy and anger over infidelity, wouldn't you?
+Consider a married couple where one partner has an affair. This person has betrayed the one to whom he or she is to be most committed. What would you expect the offended spouse to do? Would you expect that person to act as if nothing had happened? What if the offended spouse said, "Oh, that's okay"? Wouldn't you wonder whether that person cared about the relationship? If the offended person cared, you would expect to see some jealousy and anger over infidelity.
 
 So it is with God in James 4:5-6.
 
 > Or do you suppose it is to no purpose that the Scripture says, “He yearns jealously over the spirit that he has made to dwell in us”? But he gives more grace. Therefore it says, “God opposes the proud, but gives grace to the humble.”
 
-When we wander from God, the Spirit he has poured out on us and who now lives in us becomes quite concerned and envious. A better way to translate the words *envious* or *jealous* is the word *zealous.* Like the person whose spouse is unfaithful, God is zealous to do whatever it takes to regain the affection of our hearts. He doesn't do this because he needs us; he does this because he loves us. When he pursues us and we humble ourselves and return to him, he pours out even more grace!
+When we wander from God, the Spirit he has poured out on us and who now lives in us becomes quite concerned and envious. A better way to translate the words *envious* or *jealous* is the word *zealous.* Like the person whose spouse is unfaithful, God will do whatever it takes to regain our affection. He doesn't do this because he needs us; he does this because he loves us. When he pursues us and we humble ourselves and return to him, he pours out even more grace!
 
 **DISCUSSION QUESTION:** *Based on what we have learned so far in this class, what do you think God uses to regain our affections? (Other people!)*
 
