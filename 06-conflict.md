@@ -73,9 +73,9 @@ When we wander from God, the Spirit he has poured out on us and who now lives in
 
 **DISCUSSION QUESTION:** *Based on what we have learned so far in this class, what do you think God uses to regain our affections? (Other people!)*
 
-God uses the difficulties in relationships to allow us to see what we typically live for besides him. God used Ashley and Hannah in each other's lives to help them grow in repentance and faith.
+God uses the difficulties in relationships to allow us to see what we live for other than him. God used Ashley and Hannah in each other's lives to help them grow in repentance and faith.
 
-Who is God using in your life right now? Do you see that your wise, sovereign, and gracious Redeemer was acting on your behalf when he placed this person in your life? If so, you are growing in your ability to engage in conflict in godly ways. Remember, you can't avoid conflict, but it can be a place where amazing growth takes place!
+Who is God using in your life right now? Do you see that your wise, sovereign, and gracious savior was acting on your behalf when he placed this person in your life? If so, you are growing in your ability to engage in conflict in biblical ways. Remember, you can't avoid conflict, but it can be a place where amazing growth takes place!
 
 ## Once We Are Rescued, What Should We Do?
 
@@ -83,40 +83,41 @@ James 4:7-10 says:
 
 > Submit yourselves therefore to God. Resist the devil, and he will flee from you. Draw near to God, and he will draw near to you. Cleanse your hands, you sinners, and purify your hearts, you double-minded. Be wretched and mourn and weep. Let your laughter be turned to mourning and your joy to gloom. Humble yourselves before the Lord, and he will exalt you.
 
-Seeing God's redeeming love should lead us to grow in the joy of daily repentance and faith. Seeing, admitting, confessing, and forsaking sin (repentance) in combination with seeing, acknowledging, and adoring Christ (faith) is the only dynamic that can change a war-maker into a peacemaker. We are called upon to resist Satan's schemes to use parts of creation to entice our still-sinful hearts. We are commanded to humble ourselves and submit ourselves to God. Through humility and crying out to God for help, our hearts will be changed and purified, and our behavior will change as well.
+Seeing God's redeeming love should lead us to grow in the joy of daily repentance and faith. We must see, admit, confess, and leave our sin. We must see, recognize, and adore Christ. These are the only things that can change stubborn rebels into peacemakers. God calls us to resist Satan's plans to use parts of creation to entice our sinful hearts. He commands us to humble ourselves and submit ourselves to him. Humility and reliance on God will change and purify our hearts. And once our hearts change, our behavior will change.
 
 ## Let's Get Practical
 
-To apply what James 4 teaches we have to begin with relationships built on commitment and love. Within those relationships we can start to form habits that can be practiced later on in tougher moments of conflict. What then does it look like to engage in godly conflict in the heat of the moment?
+To apply what James 4 teaches we have to begin with relationships built on commitment and love. Within those relationships, we can start to form habits. Those habits will be necessary later on in tougher moments of conflict. What does it look like to engage in biblical conflict in the heat of the moment?
 
-*Understand that conflict is one way God works in our lives.* In fact, God himself entered into conflict when he humbly came as a man to fight on our behalf against the ravages of sin. He calls us to imitate him as we engage in conflict with others. Godly conflict is an act of compassion.
+Understand that conflict is one way God works in your life. God entered into conflict when he came as a man to fight on our behalf against sin. He calls us to imitate him as we engage in conflict with others. Biblical conflict is an act of compassion.
 
-*Identify what drives ungodly conflict in our lives.* What tends to lure our loyalty and affection away from God? Be specific and don't be surprised if each instance of ungodly conflict reveals a different idol, whether it be acceptance, power, control, recognition, pleasure, or being right.
+Identify what drives unbiblical conflict in your life. What tends to draw our attention away from God? If you are specific and thorough, you'll discover many reasons. Sometimes it is power, acceptance, control, recognition, pleasure, or being right.
 
-*Recognize our default strategy in conflict.* Most of us have a default strategy we use to get what we want. Do we love to fight because we have to be right? Do we avoid conflict because we don't want people to disapprove of us? Do we avoid conflict because we don't like discomfort?
+Recognize your default strategy in conflict. Most of us have a default strategy we use to get what we want. Do we love to fight because we have to be right? Do we avoid conflict because we don't want people to disapprove of us? Do we avoid conflict because we don't like discomfort?
 
-*Engage in specific and intelligent spiritual warfare.* When we see what we typically live for and how we try to get it, we can start to grow in repentance and faith. We want to be brutally honest about our sin, but we also want to be ardently hopeful about what Christ has done for us on the cross. We want to remember that because we have the Holy Spirit, we already have the resources available to fight against ungodly conflict.
+Engage in specific and intelligent spiritual warfare. When we see what we live for and how we try to get it, we can start to grow in repentance and faith. We must be honest about our sin, but we also want to be hopeful about what Christ has done for us on the cross. Because we have the Holy Spirit, we have the resources to fight unbiblical conflict.
 
-*Consider the other person.* 1 Thessalonians 5:14-18 gives us some critical guidance here:
+Consider the other person. 1 Thessalonians 5:14-18 gives us some critical guidance here:
 
 > And we urge you, brothers, admonish the idle, encourage the fainthearted, help the weak, be patient with them all. See that no one repays anyone evil for evil, but always seek to do good to one another and to everyone. Rejoice always, pray without ceasing, give thanks in all circumstances; for this is the will of God in Christ Jesus for you.
 
-**DISCUSSION QUESTION:** *What different actions does Paul say we should take when considering the other person? (Warn, encourage, help)*
+**DISCUSSION QUESTION:** *What actions does Paul say we should take when considering the other person? (Warn, encourage, help)*
 
-**DISCUSSION QUESTION:** *What does Paul say we should always do when we consider another person? (Be patient, kind, thankful, joyful, and not vengeful)*
+**DISCUSSION QUESTION:** *What does Paul say we should do when we consider another person? (Be patient, kind, thankful, joyful, and not vengeful)*
 
-As our hearts are reclaimed by the grace of God, as individuals we should ask questions about what it will look like to engage in godly conflict. Do I need to pursue someone and confront him? Do I need to be patient and encourage him? Do I need to overlook an offense? What sins and weaknesses in the other person do I need to consider? Paul says there are different ways to confront, based on what the person needs and what will build him up.
+As God's grace reclaims our hearts, we should ask what it will look like to engage in biblical conflict. Do I need to pursue someone and confront him? Do I need to be patient and encourage him? Do I need to overlook an offense? What sins and weaknesses in the other person do I need to consider? Paul says there are different ways to confront, based on what the person needs and what will build him up.
 
-*Make a plan to approach the person.* If we think patience has run its course and we need to address an issue, approach the person in this way:
+Make a plan to approach the person. If you think patience has run its course and you need to address an issue, then own whatever personal sin you have committed. Only do this if you have sin to own. Sometimes you won't, but most of the time you do bring sin into the situation. Don't be afraid to admit where you have not loved well, even if your sin was your response to the other's sin. Confidence in Christ's righteousness is the only thing that will enable us to do this!
 
-- Own whatever personal sin we have brought to the situation. Only do this if you have sin to own - sometimes you will; sometimes you won't. Most of the time we do bring sin into the situation, so don't be afraid to admit where you have not loved well, even if your sin was your response to the other's sin. Our confidence in Christ's righteousness (and not our own) is the only thing that will enable us to do this!
-- Agree together that we want God's will. This can take the focus off ourselves and remind us that God wants to use the conflict for our growth. It also gives us both the same focus moving forward.
-- Name the problem. We may need to address more than one problem. Be specific so that we are both dealing with the same problem. Deal with one problem at a time!
-- Explore possible solutions. Stay focused on the problem, and come with a desire to deal with it. Suggest possible alternative solutions, and choose one to implement.
-- Implement the agreed upon solution. Be specific and determine what it will look like.
-- Evaluate our implementation. Make a commitment to get together again and evaluate how the solution is working. Such a commitment is a form of accountability. It communicates a deep commitment to the relationship.
+Agree together that both of you want God's will. This can take the focus off the two of you and remind you that God wants to use the conflict for your growth. It also gives you both the same focus moving forward.
 
-No one ever said that conflict would be fun, but the Christian life is not always fun. That is not the most important thing to God. He is committed to something much bigger. His kingdom plan involves a total restoration of what he has made. He will settle for nothing less in his creation than to see that all things ultimately bring him glory. He will be at the center of everything at the end of the age, and when that happens, we will be most satisfied. Right now, he is using conflict to work out this comprehensive plan in us. Take heart, for he is present in our struggles and he is fighting on our behalf!
+Name the problem. You may need to address more than one problem. Be specific so that you are both dealing with the same problem. Deal with one problem at a time!
+
+Explore possible solutions. Stay focused on the problem, and come with a desire to deal with it. Suggest possible alternative solutions, and choose one to put in place. Carry out the agreed upon solution. Be specific and determine what that will look like.
+
+Check your implementation of the solution. Make a commitment to get together again and check how the solution is working. Such a commitment is a form of accountability. It communicates a deep commitment to the relationship.
+
+No one ever said that conflict would be fun, but the Christian life is not always fun. That is not the most important thing to God. He has a much bigger vision. His plan involves a total restoration of what he has made. He will settle for nothing less in his creation than to see that all things bring him glory. He will be at the center of everything at the end of the age, and when that happens, we will be most satisfied. Right now, he is using conflict to work out this comprehensive plan in us. Have courage! He is there in our struggles and he is fighting on our side!
 
 C.S. Lewis wrote:
 
