@@ -24,21 +24,21 @@ Jesus tells a story in Matthew 18:21-35:
 
 The metaphor of canceling a debt defines the nature of forgiveness. The merciful king absorbed a $100,000 debt owed to him. When *we* forgive someone we also cancel a debt. We make a conscious choice to absorb the cost ourselves. We choose not to make the offender pay for the offense. We make at least three promises when we forgive.
 
-We promise never to bring the debt up as leverage. When we forgive, we will not make the offender pay by reminding him of what he has done so that we can control him. This does not mean that we can't discuss it and seek to deal with the offense in a redemptive way. This is where the conflict that we discussed earlier comes into play.
+We promise never to bring the debt up as leverage. When we forgive, we will not make the offender pay by reminding him of what he has done so that we can control him. This does not mean that we can't discuss it and seek to deal with the offense in a biblical way. This is where the conflict that we discussed earlier comes into play.
 
-We promise never to bring up the offense to others and slander the person who sinned against us. This does not mean that we can't seek the advice of others. But it does mean that we will not slander the person under the pretense of getting advice. We also will not gossip about what the person has done to us.
+We promise never to bring up the offense to others to slander the person who sinned against us. This does not mean that we can't seek the advice of others. But it does mean that we will not slander the person under the pretense of getting advice. We also will not gossip about what the person has done to us.
 
 We promise not to dwell on the offense ourselves. One of the biggest challenges is to not replay the offense over and over again in our mind.
 
-If we break one of these promises then we have not forgiven; we have not canceled the debt. Our desire to make the person pay outweighs our desire to forgive.
+If we break one of these promises then we have not forgiven. We have not canceled the debt. Our desire to make the person pay outweighs our desire to forgive.
 
 **DISCUSSION QUESTION:** *How do you truly forgive?*
 
-**DISCUSSION QUESTION:** *Do you ever struggle with breaking one of these promises?*
+**DISCUSSION QUESTION:** *Do you struggle with breaking one of these promises?*
 
-**DISCUSSION QUESTION:** *Do you struggle with truly absorbing the cost of forgiveness?*
+**DISCUSSION QUESTION:** *Do you struggle with absorbing the cost of forgiveness?*
 
-### Forgiveness Is Costly, but Not Forgiving Is More Costly
+### Forgiveness is costly, but not forgiving is more costly
 
 Forgiveness is costly. Canceling a debt and absorbing the cost is going to hurt. It is this pain that often makes true forgiveness so difficult, but we must realize that there is a greater cost to not forgiving!
 
@@ -50,7 +50,7 @@ The unmerciful servant, who before the king was the victim of his own negligence
 
 ### Forgiveness is an event and a process
 
-**DISCUSSION QUESTION:** *Why do you think Jesus told Peter we are to forgive "seventy times seven"?*
+**DISCUSSION QUESTION:** *Why do you think Jesus told Peter to forgive "seventy times seven"?*
 
 The temptation exists to slip into bitterness some time in the future. Even if we have forgiven for an offense, we will be tempted to think about it the next time we see the person or the next time she sins against us. Without realizing it, we will pile that sin on top of the old sins, making it much more difficult for us to forgive. We not only need to forgive once but continue to forgive the same sin.
 
