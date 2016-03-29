@@ -2,19 +2,17 @@
 
 **DISCUSSION QUESTION:** *What is the most valuable thing you have learned so far?*
 
-Because we are forgiven people, we must practice forgiveness. I need to remember that Jesus canceled my debt so that I could be forgiven. Therefore, I need to forgive others just as Christ has forgiven me. So the question we need to consider is: will we ask for and give forgiveness as God has called us to?
+Because we are forgiven, we must practice forgiveness. I need to remember that Jesus canceled my debt so that I could be forgiven. So, I need to forgive others just as Christ forgave me. So, will we forgive and ask forgiveness as God has commanded us to?
 
 C.S. Lewis wrote:
 
 > To forgive the incessant provocations of daily life - to keep on forgiving the bossy mother-in-law, the bullying husband, the nagging wife, the selfish daughter, the deceitful son - how can we do it? Only, I think, by remembering where we stand, be meaning our words when we say in our prayers each night, "Forgive us our trespasses as we forgive those that trespass against us." We are offered forgiveness on no other terms. To refuse it is to refuse God's mercy for us. There is no hint of exceptions and God means what he says.
 
-The Lord's Prayer commands us to pray, "Forgive our trespasses as we forgive our debtors" right after it instructs us to pray for daily bread. Practicing forgiveness is something we must do daily in the same way we ask for the daily provision of food. It is a part of everyday life, not just something for life's "big" sins and events. But forgiveness is one of the least practiced activities in the Christian community.
-
-The Bible is the story of a God who forgives, calling the forgiven to be forgiving. Yet so little of the forgiveness we have received translates into forgiveness for others. We need help!
+The Lord's Prayer commands us to pray, "Forgive our trespasses as we forgive our debtors" right after it instructs us to pray for daily bread. Practicing forgiveness is something we must do daily in the same way we ask for the daily provision of food. It is a part of everyday life, not just something for life's "big" sins and events. But forgiveness is one of the least practiced activities in the Christian community. The Bible is the story of a God who forgives and calls the forgiven to be forgiving. Yet so little of the forgiveness we have received translates into forgiveness for others!
 
 **DISCUSSION QUESTION:** *What is forgiveness?*
 
-**DISCUSSION QUESTION:** *What can cause forgiveness to be so difficult?*
+**DISCUSSION QUESTION:** *What makes forgiveness so difficult?*
 
 ## What Does It Mean to Forgive?
 
