@@ -1,12 +1,12 @@
 # Conflict
 
----
-
-**Editor's Note:** *[You can preview and print the handout here](https://docs.google.com/document/d/1i81Igm768Tn_LgTfrrSHDFug1guR6iQPoxunowmgDTs/edit?usp=sharing)*
-
----
-
 Relationships bring conflict but also growth. I need to face conflict and be willing to identify the selfish desires of my heart that lead to conflict. I need to commit to working through conflict for the good of the relationship. I must be willing to accept and confess my sin, and consider the needs of the other person. What are the sinful desires that lead to conflict?
+
+---
+
+**Editor's Note:** *[You can preview and print the handout here.](https://docs.google.com/document/d/1i81Igm768Tn_LgTfrrSHDFug1guR6iQPoxunowmgDTs/edit?usp=sharing)*
+
+---
 
 For the better part of five years, Ashley and Hannah had worked side by side in campus ministry. They loved what they did, and they loved doing it together. But Hannah had been seeking to undermine Ashley's relationship with the students. She wanted others to see her as the one who was more capable and in charge. She wanted to students to like and admire her more than Ashley. Now Ashley felt things had gotten out of control. Once again her friend had just hurt her, so she made an appointment to meet with Hannah to speak her mind.
 
