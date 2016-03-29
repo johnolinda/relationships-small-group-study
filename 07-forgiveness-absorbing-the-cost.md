@@ -84,21 +84,21 @@ The Bible never says, "Make it easy for someone to sin against you." Instead it 
 
 ## Asking For and Granting Forgiveness
 
-Evaluate the following conversation between Andy and Melissa:
+Test the following conversation between Andy and Melissa:
 
 "Melissa, I am sorry you got so upset when I yelled at you. I hate it when that happens."
 
 "That's OK, Andy. I guess I was just tired after a long day at work."
 
-Andy actually blames the fight on Melissa! He implies that the problem was not that he yelled at her, but that she was too sensitive about it. Melissa responds by accepting the blame for Andy's sin and then excusing her own response. The great problem here is that no one admits any sin and no one offers forgiveness.
+Andy actually blames the fight on Melissa! He implies that the problem was not that he yelled at her, but that she was too sensitive about it. Melissa responds by accepting the blame for Andy's sin. Then she excuses her own response. The problem here is that no one admits any sin and no one offers forgiveness.
 
-If a sin truly is committed, it has to be specifically acknowledged by the person who sinned. That person then needs to ask for forgiveness for the specific sin. The offended person then must choose to forgive or not to forgive. If this doesn't occur in this way, at some point Melissa is going to become angry with Andy and say that he never admits he is wrong. Andy will likely do the same with Melissa. And they will both be right!
+If someone has committed sin, he must acknowledge it. That person then needs to ask for forgiveness for the specific sin. The offended person then must choose to forgive or not to forgive. Otherwise, at some point Melissa is going to become angry with Andy and say that he never admits he is wrong. Andy will likely do the same with Melissa. And they will both be right!
 
-Of course it is possible to use all the right words and not mean what you say. That's hypocrisy and has nothing to do with forgiving. When we practice forgiveness, our words flow from a humble heart that acknowledges how much we ourselves have been forgiven.
+Of course it is possible to use all the right words and not mean what you say. That's hypocrisy and has nothing to do with forgiving. When we practice forgiveness, our words must flow from a humble heart. We must admit how much forgiveness we have received.
 
 **Discussion Question:** *Is there a difference between an apology and asking for forgiveness?*
 
-An apology is appropriate when you have done something by accident. For example, if I accidentally spill a cup of coffee on you, I should say, "I am very sorry I did that," and help you clean up. But if I purposefully threw coffee on you because I was irritated, then that is not an accident. That is sin and requires me to name the sin, confess that I was wrong, and ask for forgiveness.
+An apology is appropriate when you have done something by accident. For example, if I spill a cup of coffee on you, I should say, "I'm sorry I did that," and help you clean up. But if I was threw coffee on you out of irritation, then that is not an accident. That is sin and requires me to name the sin, confess that I was wrong, and ask for forgiveness.
 
 ## Forgiving by Grace
 
