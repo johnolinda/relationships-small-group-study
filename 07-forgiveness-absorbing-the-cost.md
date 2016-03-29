@@ -2,13 +2,13 @@
 
 **DISCUSSION QUESTION:** *What is the most valuable thing you have learned so far?*
 
-Because we are forgiven, we must practice forgiveness. I need to remember that Jesus canceled my debt so that I could be forgiven. So, I need to forgive others just as Christ forgave me. So, will we forgive and ask forgiveness as God has commanded us to?
+Because God forgave us, we must practice forgiveness. I need to remember that Jesus canceled my debt to forgive me. So, I need to forgive others just as Christ forgave me. So, will we forgive and ask forgiveness as God has commanded us to?
 
 C.S. Lewis wrote:
 
 > To forgive the incessant provocations of daily life - to keep on forgiving the bossy mother-in-law, the bullying husband, the nagging wife, the selfish daughter, the deceitful son - how can we do it? Only, I think, by remembering where we stand, be meaning our words when we say in our prayers each night, "Forgive us our trespasses as we forgive those that trespass against us." We are offered forgiveness on no other terms. To refuse it is to refuse God's mercy for us. There is no hint of exceptions and God means what he says.
 
-The Lord's Prayer commands us to pray, "Forgive our trespasses as we forgive our debtors" right after it instructs us to pray for daily bread. Practicing forgiveness is something we must do daily in the same way we ask for the daily provision of food. It is a part of everyday life, not just something for life's "big" sins and events. But forgiveness is one of the least practiced activities in the Christian community. The Bible is the story of a God who forgives and calls the forgiven to be forgiving. Yet so little of the forgiveness we have received translates into forgiveness for others!
+The Lord's Prayer tells us to pray, "Forgive our trespasses as we forgive our debtors." This happens right after it instructs us to pray for daily bread. Practicing forgiveness is something we must do daily in the same way we ask for the daily provision of food. It is a part of everyday life, not just something for life's "big" sins and events. But forgiveness is one of the least practiced activities in the Christian community. The Bible is the story of a God who forgives and calls the forgiven to be forgiving. Yet so little of the forgiveness we have received translates into forgiveness for others!
 
 **DISCUSSION QUESTION:** *What is forgiveness?*
 
@@ -40,31 +40,31 @@ If we break one of these promises then we have not forgiven. We have not cancele
 
 ### Forgiveness is costly, but not forgiving is more costly
 
-Forgiveness is costly. Canceling a debt and absorbing the cost is going to hurt. It is this pain that often makes true forgiveness so difficult, but we must realize that there is a greater cost to not forgiving!
+Forgiveness is costly. Canceling a debt and absorbing the cost is going to hurt. This pain makes true forgiveness difficult. But, we must realize that there is a greater cost to not forgiving!
 
 **DISCUSSION QUESTION:** *What is the lesson and warning Jesus gives through the parable in Matthew 18? (God is going to treat us the same way we treat others.)*
 
-Habitual unwillingness to forgive will cost us eternally. It will also make us bitter and unloving people, and we will eventually damage all our relationships.
+Habitual unwillingness to forgive will cost us. It will make us bitter and unloving people. We will damage all our relationships.
 
-The unmerciful servant, who before the king was the victim of his own negligence, turns into a tyrant. Notice what he did to the other servant: he "seized him by the throat" and had him thrown in jail! It feels so natural to make someone pay, but a sense of justice quickly goes into overdrive and turns into revenge. We may not choke anyone, but we may shut others out of our lives. Bitterness gets its foot in the door, and eventually, if the situation is not addressed and forgiveness is not granted, it takes over. And if we don't practice forgiveness on a daily basis with the little skirmishes, we'll begin to lose the battles, which will eventually cost us the war.
+The unmerciful servant, who before the king was the victim, turns into a dictator. Notice what he did to the other servant: he "seized him by the throat" and threw him in jail! It feels so natural to make someone pay, doesn't it? But, a sense of justice goes into overdrive and turns into revenge. We may not choke anyone, but we may shut others out of our lives. Bitterness gets its foot in the door and takes over if it isn't caught. If we don't practice daily forgiveness with little problems, we'll lose the battles. One day this will cost us the war.
 
 ### Forgiveness is an event and a process
 
 **DISCUSSION QUESTION:** *Why do you think Jesus told Peter to forgive "seventy times seven"?*
 
-The temptation exists to slip into bitterness some time in the future. Even if we have forgiven for an offense, we will be tempted to think about it the next time we see the person or the next time she sins against us. Without realizing it, we will pile that sin on top of the old sins, making it much more difficult for us to forgive. We not only need to forgive once but continue to forgive the same sin.
+The temptation exists to slip into bitterness some time in the future. Even if we have forgiven an offense, we will be tempted to think about it. Perhaps the next time we see the person or the next time she sins against us. Without realizing it, we will pile that sin on top of the old sins, making it much more difficult for us to forgive. We not only need to forgive once but continue to forgive the same sin.
 
 ### Forgiveness is not forgetting
 
-In Jeremiah 31:34 God says, "I will forgive their wickedness and will remember their sins no more." Some say this is how we should forgive. That true forgiveness forgets what someone has done to us. This understanding of forgiveness creates at least two problems.
+In Jeremiah 31:34, God says, "I will forgive their wickedness and will remember their sins no more." Some say this is how we should forgive. That true forgiveness forgets what someone has done to us. This understanding of forgiveness creates at least two problems.
 
 First, it is not realistic. Our minds do not function this way, and our ability to remember is powerful. In the same way, trying to forget a sin someone has committed against us will only encourage us to remember it. Completely erasing our memory is unrealistic.
 
-Second, the passage in Jeremiah does not say that God has amnesia when he looks at you. Our omniscient God does not forget anything! The word *remember* is not a memory word but a promise word, a covenant word. God is promising that when we confess our sins, he will not treat us as our sins deserve, but will instead forgive us. This is why forgiveness is both a past and an ongoing process into the future. It is a past promise you keep in the future. When this is done, the memory of small offenses usually dissipates. Larger offenses probably will not.
+Second, the passage in Jeremiah does not say that God has amnesia when he looks at you. Our omniscient God does not forget anything! The word *remember* is not a memory word but a promise word, a covenant word. God is promising that when we confess our sins, he will not treat us as our sins deserve, but will instead forgive us. This is why forgiveness is both a past and an ongoing process into the future. It is a past promise you keep in the future. When you do this, the memory of small offenses usually dissipates. Larger offenses will not.
 
-Grace will never forget about John's affair. Heather will never forget her abuse. Melissa and Andy will always be aware that they sinned against each other. Michael will remember the times his father was sinfully angry. But each individual can still practice biblical forgiveness. They can make a promise and remain faithful to that promise over time. If Grace believes she must forget, she may be plagued with doubts about whether she has truly forgiven her husband, or if she believes she can forgive him once but hold onto the hurt into the future, she will become subtly bitter.
+Grace will never forget about John's affair. Heather will never forget her abuse. Melissa and Andy will always be aware that they sinned against each other. Michael will remember the times his father sinned in anger. But each individual can still practice biblical forgiveness. They can make a promise and remain faithful to that promise over time. If Grace believes she must forget, doubt may haunt her. Has she forgiven her husband if she still remembers? Or if she believes she can forgive him once but hold onto the hurt into the future, she will become bitter.
 
-**DISCUSSION QUESTION:** *Is there an offense committed against you that you still remember? When you remember, do you lean toward bitterness or practice forgiveness all over again?*
+**DISCUSSION QUESTION:** *Can you still remember something offensive that happened to you? When you remember, do you lean toward bitterness or practice forgiveness all over again?*
 
 ### Forgiveness is vertical and horizontal
 
