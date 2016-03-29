@@ -1,6 +1,10 @@
 # Conflict
 
+---
+
 **Editor's Note:** *[You can preview and print the handout here](https://docs.google.com/document/d/1i81Igm768Tn_LgTfrrSHDFug1guR6iQPoxunowmgDTs/edit?usp=sharing)*
+
+---
 
 Relationships bring conflict but also growth. I need to face conflict and be willing to identify the selfish desires of my heart that lead to conflict. I need to commit to working through conflict for the good of the relationship. I must be willing to accept and confess my sin, and consider the needs of the other person. What are the sinful desires that lead to conflict?
 
