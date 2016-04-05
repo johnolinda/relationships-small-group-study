@@ -63,23 +63,21 @@ though the mountains be moved into the heart of the sea,
 
 **DISCUSSION QUESTION:** *What is the response the psalmist says we will have? Why?*
 
-Even when terrible things are happening, we can have peace because we know our powerful and glorious God is with us. Our hope does not rest on the shoulders of our own strength, wisdom, and character but on his. God is here and able to do what we could never do.
+Even when terrible things happen, we can have peace because we know our powerful and glorious God is with us. Our hope is not in our own strength, wisdom, and character but on his. God is here and able to do what we could never do.
 
 #### Christ's Promises
 
-Though people may react negatively to hearing how Christ's promises speak to their situation - seeing them as spiritual trickery to make them feel good about something that is bothering them - those promises are the true identity of the believer. Christ's promises are not mystical, cuddly unrealities but accurate assessments of the true resources we have as God's children.
+People may not appreciate hearing how Christ's promises apply to their situation. People sometimes see this as trickery to make them feel better. But, those promises are the true identity of the believer. Christ's promises are not mystical, cuddly band-aids. They're accurate assessments of our true resources as God's children.
 
 #### Our Potential in Christ
 
-When we struggle, we often begin to measure our potential. We assess ourselves to see whether we have what it takes to get through the difficulty. The problem is that most of us are poor personal accountants. When we add up the things that define our potential, we leave out the most important asset: Christ. Galatians 2:20 says:
+When we struggle, we often measure our potential. We assess ourselves to determine whether we have the resources to get through the situation. The problem is that most of us are poor personal accountants. When we add up the things that define our potential, we forget the critical asset: Christ. Galatians 2:20 says:
 
 > I have been crucified with Christ. It is no longer I who live, but Christ who lives in me. And the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me.
 
 **DISCUSSION QUESTION:** *How does this verse help us accurately view our potential? (Our potential is Christ living in us, and he wants to help; our potential is not our wisdom, strength, or ability but our faith.)*
 
-## Closing Activity
-
-Thinking about a relationship you have, answer the following questions:
+So, let's turn the focus on our own relationships. Thinking about a relationship you have, answer the following questions:
 
 1. *Has the relationship gone according to your plan?*
 2. *Is the relationship living up to your expectation?*
