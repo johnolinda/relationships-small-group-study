@@ -85,19 +85,19 @@ So, let's turn the focus on our own relationships. Thinking about a relationship
 4. *What's one improvement you could make in the relationship?*
 5. *What from this lesson has encouraged you or given you hope?*
 
-## Central Point
+## Central Points
 
 1. We are all in the middle of being redeemed and perfected.
 2. My relationships will never be perfect.
 3. God not only wants us to endure the process of redemption and perfection but to use us in the lives of others as a part of the process.
 
-## Personal Application
+## Personal Applications
 
 1. I can't expect my relationships to go according to my plan, expectations, or will.
 2. I can have hope because of Christ's promises, presence, and potential.
 3. I can be used by God in his work of redemption.
 
-## Relational Application
+## Relational Applications
 
 1. I need to be patient, humble, forbearing, gentle, and loving in my response to others because none of us is perfect (yet).
 2. I can give hope to others by encouraging them to focus on Christ's promises, presence, and potential.
