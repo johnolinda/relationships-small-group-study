@@ -2,7 +2,7 @@
 
 My relationships will always have flaws. But Christ empowers me to navigate through the problems as an instrument of grace. I need to rest in Christ to bear fruit in my relationships. I also need to encourage others to remain in Christ. But, why are relationships difficult, and how do we persevere?
 
-## Relationships in the Middle
+## Four Truths About Relationships
 
 Relationships develop in the middle of something: God's plan to use everything in our lives to make us more like Christ. We never experience marriage to a perfect spouse. Our friends will not always respond maturely. Our children will never parent themselves. Our neighbors will still make noise at strange hours. The people around us won't always think, say, or do right. Our relationships happen in the imperfect present. Everyone who lives in the present will experience four things. As we consider each of these areas, remember the hope that we have in response.
 
@@ -30,13 +30,13 @@ No matter how good a relationship is, room for improvement exists. Because we ha
 
 **DISCUSSION QUESTION:** *Even though our relationships will always need to improve, what is the hope we have in Christ? (God gives us the grace and strength to do his will, and the fruit of the Spirit can increase as we walk with Christ [John 15].)*
 
-## The Hardship of Relationships in the Middle
+## The Hardship of Relationships
 
 Relationships aren't only hard because they don't meet our expectations or follow our plans. Here's what is hard: God calls each of us to minister to the people he has placed in our lives on top of the problems. We are not called to survive and accept the weaknesses of others but to be instruments of grace in their lives. We humbly live with sinners in a world of difficulty. We gently take part in God's work in someone's life without interfering. We patiently deal with the sin and weakness of those around us and to respond in love even when we are provoked. That makes relationships hard!
 
 **DISCUSSION QUESTION:** *How do you feel about being called to be an instrument of change in another person's life?*
 
-## Encouraging Others in the Middle
+## The Necessity of Encouragement
 
 Life in the middle of something is difficult. So, encouragement is essential for a biblical, healthy community. Encouragement is rarely inappropriate. But, even when we desire to encourage someone, our encouragement can fall short. We tend to make two mistakes. First, we tend to imagine encouragement is about making the other person feel better.
 
@@ -50,7 +50,7 @@ True encouragement reveals spiritual truth instead of material explanations. We 
 
 As we live with one another in the middle, we need more than good feelings and accurate understanding. We need eyes to see this one amazing reality: that we are Christ's and he is ours. This is the encouragement we all need to hear and focus on. We need to help others see three things so that they do not give up and lose hope in the middle of relational difficulties.
 
-#### Christ's Presence
+### Christ's Presence
 
 Your goal here is to help others develop a "Christ is with me" mentality. A good passage to refer to is Psalm 46:1-2:
 
@@ -65,11 +65,11 @@ though the mountains be moved into the heart of the sea,
 
 Even when terrible things happen, we can have peace because we know our powerful and glorious God is with us. Our hope is not in our own strength, wisdom, and character but on his. God is here and able to do what we could never do.
 
-#### Christ's Promises
+### Christ's Promises
 
 People may not appreciate hearing how Christ's promises apply to their situation. People sometimes see this as trickery to make them feel better. But, those promises are the true identity of the believer. Christ's promises are not mystical, cuddly band-aids. They're accurate assessments of our true resources as God's children.
 
-#### Our Potential in Christ
+### Our Potential in Christ
 
 When we struggle, we often measure our potential. We assess ourselves to determine whether we have the resources to get through the situation. The problem is that most of us are poor personal accountants. When we add up the things that define our potential, we forget the critical asset: Christ. Galatians 2:20 says:
 
