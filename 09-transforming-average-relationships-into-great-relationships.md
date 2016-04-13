@@ -58,7 +58,7 @@ The second part of the miracle is that by the Spirit we have to power to show gr
 
 The moment we move out into the world we face trouble and temptation. We may become involved in conflict and persecution. There will be times when we want to quit and wonder if it is worth following Jesus. At these moments, we need the work of the Spirit to remind us of our own sin and remind us of the grace available to us. The service Jesus rendered for us in his life, death, and resurrection is not only for forgiveness of sins or for a future in heaven. It is also for the daily power to change in the present. We are not only promised life after death but also life before death!
 
-**DISCUSSION QUESTION:** *What tends to keep you from serving others?
+**DISCUSSION QUESTION:** *What tends to keep you from serving others?*
 
 **DISCUSSION QUESTION:** *What are some new opportunities for us to serve in our school and church?*
 
