@@ -131,19 +131,19 @@ C.S. Lewis wrote:
 >
 > I find I must borrow yet another parable from George MacDonald. Imagine yourself as a living house. God comes in to rebuild that house. At first, perhaps, you can understand what He is doing. He is getting the drains right and stopping the leaks in the roof and so on: you knew that those jobs needed doing and so you are not surprised. But presently He starts knocking the house about in a way that hurts abominably and does not seem to make sense. What on earth is He up to? The explanation is that He is building quite a different house from the one you thought of—throwing out a new wing here, putting on an extra floor there, running up towers, making courtyards. You thought you were going to be made into a decent little cottage: but He is building a palace. He intends to come and live in it Himself.
 
-## Central Point
+## Central Points
 
 1. Relationships inevitably bring conflict.
 2. God chooses to use conflict to defeat sin in us and make us more like Christ.
 3. Christ is present to help us in the midst of conflict and lift us up when we humble ourselves.
 
-## Personal Application
+## Personal Applications
 
 1. I need to face conflict and not avoid it.
 2. I need to identify the selfish desires of my heart that lead to conflict.
 3. I need to keep God and his glory first in my life.
 
-## Relational Application
+## Relational Applications
 
 1. I need to commit to working through conflict for the good of the relationship.
 2. I need to accept and confess my sin to the other person.

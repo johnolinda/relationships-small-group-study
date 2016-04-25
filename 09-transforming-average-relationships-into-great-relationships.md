@@ -62,18 +62,18 @@ The moment we move out into the world we face trouble and temptation. We may bec
 
 **DISCUSSION QUESTION:** *What are some new opportunities for us to serve in our school and church?*
 
-## Central Point
+## Central Points
 
 1. Whoever wants to be great must become a servant.
 2. Jesus is our model for perfect servanthood.
 
-## Personal Application
+## Personal Applications
 
 1. Serving others is never optional if I claim Jesus as my Lord.
 2. I need to be reminded of my need for grace and forgiveness so I can offer grace and forgiveness to others.
 3. I need to be mindful of how Christ served me so I can serve others.
 
-## Relational Application
+## Relational Applications
 
 1. I need to see myself as a servant in relation to others.
 2. I can serve others by loving, accepting, honoring, carrying their burdens, and bearing with them.
